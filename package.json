@@ -1,0 +1,12 @@
+{
+  "name": "neet-niche-intel",
+  "version": "1.0.0",
+  "private": true,
+  "type": "module",
+  "description": "Autonomous daily YouTube competitor intelligence for the NEET niche",
+  "scripts": {
+    "scan": "node scripts/scan.mjs",
+    "selftest": "node scripts/scan.mjs --selftest"
+  },
+  "engines": { "node": ">=20" }
+}

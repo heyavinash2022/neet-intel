@@ -1,0 +1,33 @@
+[
+  {
+    "channelId": "UC_cw", "name": "Competition Wallah", "subs": 4820000, "totalViews": 620000000, "videoCount": 1200,
+    "videos": [
+      { "id": "v1", "title": "You are COOKED‼️ NEET 2027 Cutoff will DECREASE 😲", "tags": ["neet 2027","cutoff","neet cutoff"], "published": "2026-08-11T10:00:00Z", "thumb": "https://i.ytimg.com/vi/v1/mqdefault.jpg", "views": 82000, "likes": 2460, "comments": 310 },
+      { "id": "v2", "title": "BACKLOG MARATHON One Shot | NEET 2027 Droppers", "tags": ["backlog","neet 2027","one shot"], "published": "2026-08-10T10:00:00Z", "thumb": "https://i.ytimg.com/vi/v2/mqdefault.jpg", "views": 54000, "likes": 1600, "comments": 120 },
+      { "id": "v3", "title": "NEET 2027 Full Syllabus Strategy for Droppers", "tags": ["strategy","droppers","neet 2027"], "published": "2026-08-05T10:00:00Z", "thumb": "https://i.ytimg.com/vi/v3/mqdefault.jpg", "views": 210000, "likes": 5000, "comments": 400 }
+    ],
+    "comments": [
+      { "text": "Sir I am so scared about the cutoff, will I get mbbs with 540?? please reply", "likes": 120, "author": "Aarav", "video": "You are COOKED‼️ NEET 2027 Cutoff will DECREASE 😲", "videoId": "v1" },
+      { "text": "kya karu confused hu drop lu ya nahi 😭 panic ho raha hai", "likes": 88, "author": "Priya", "video": "You are COOKED‼️ NEET 2027 Cutoff will DECREASE 😲", "videoId": "v1" },
+      { "text": "when is the re-neet date sir? urgent please", "likes": 45, "author": "Rohan", "video": "You are COOKED‼️ NEET 2027 Cutoff will DECREASE 😲", "videoId": "v1" },
+      { "text": "I feel hopeless my rank is bad life over", "likes": 33, "author": "S", "video": "BACKLOG MARATHON One Shot | NEET 2027 Droppers", "videoId": "v2" }
+    ]
+  },
+  {
+    "channelId": "UC_vd", "name": "Sankalp NEET Vedantu", "subs": 427000, "totalViews": 55000000, "videoCount": 900,
+    "videos": [
+      { "id": "v4", "title": "Follow Yakeen Like A TOPPER ‼️ NEET 2027", "tags": ["topper","yakeen","neet 2027"], "published": "2026-08-11T09:00:00Z", "thumb": "https://i.ytimg.com/vi/v4/mqdefault.jpg", "views": 60000, "likes": 1800, "comments": 150 },
+      { "id": "v5", "title": "Why Vipin Sir ❓ NEET 2027 ✨", "tags": ["vipin","neet 2027"], "published": "2026-08-09T09:00:00Z", "thumb": "https://i.ytimg.com/vi/v5/mqdefault.jpg", "views": 30000, "likes": 900, "comments": 80 }
+    ],
+    "comments": [
+      { "text": "Sir please make a video on low cutoff colleges, so confused and scared", "likes": 60, "author": "N", "video": "Follow Yakeen Like A TOPPER ‼️ NEET 2027", "videoId": "v4" }
+    ]
+  },
+  {
+    "channelId": "UC_am", "name": "Dr. Anand Mani", "subs": 425000, "totalViews": 48000000, "videoCount": 700,
+    "videos": [
+      { "id": "v6", "title": "NEET 2027 Biology Line By Line NCERT Strategy", "tags": ["biology","ncert","neet 2027"], "published": "2026-08-08T08:00:00Z", "thumb": "https://i.ytimg.com/vi/v6/mqdefault.jpg", "views": 45000, "likes": 1500, "comments": 90 }
+    ],
+    "comments": []
+  }
+]

@@ -1,0 +1,8 @@
+{
+  "recentPerChannel": 15,
+  "commentsFromTopMovers": 6,
+  "commentsPerVideo": 25,
+  "keepSnapshots": 30,
+  "spikeThreshold": 100000,
+  "subThreshold": 5000
+}
