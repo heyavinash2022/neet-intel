@@ -6,5 +6,13 @@
   { "name": "Dr. Anand Mani", "query": "Dr Anand Mani NEET", "tracked": true },
   { "name": "Physics by Prateek Jain", "query": "Physics by Prateek Jain", "tracked": true },
   { "name": "PW Combatant", "query": "PW Combatant NEET", "tracked": true },
-  { "name": "Unacademy NEET", "query": "Unacademy NEET English", "tracked": true }
+  { "name": "Unacademy NEET", "query": "Unacademy NEET English", "tracked": true },
+  { "name": "Rakshita Singh", "query": "Rakshita Singh NEET", "tracked": true },
+  { "name": "Parth Goyal", "query": "Parth Goyal NEET motivation", "tracked": true },
+  { "name": "Om Prabhu AIIMS", "query": "Om Prabhu AIIMS", "tracked": true },
+  { "name": "Lakshay Ambastha", "query": "Lakshay Ambastha NEET", "tracked": true },
+  { "name": "Sudhanshu MBBS", "query": "Sudhanshu MBBS", "tracked": true },
+  { "name": "Beauty Jha", "query": "Beauty Jha NEET", "tracked": true },
+  { "name": "Pratyaksh Aggarwal", "query": "Pratyaksh Aggarwal NEET", "tracked": true },
+  { "name": "Apron Boy", "query": "Apron Boy NEET MBBS", "tracked": true }
 ]
