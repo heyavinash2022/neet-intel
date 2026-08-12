@@ -1,0 +1,63 @@
+name: Daily NEET Niche Brief
+
+# Runs every day at 16:30 UTC = 10:00 PM IST, and can be triggered manually.
+on:
+  schedule:
+    - cron: "30 16 * * *"
+  workflow_dispatch:
+
+permissions:
+  contents: write   # commit dashboard + history back to the repo
+  issues: write     # open an issue (emails you) when an alert fires
+
+concurrency:
+  group: daily-brief
+  cancel-in-progress: false
+
+jobs:
+  brief:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout
+        uses: actions/checkout@v4
+
+      - name: Setup Node
+        uses: actions/setup-node@v4
+        with:
+          node-version: "20"
+
+      - name: Run scan
+        env:
+          YT_API_KEY: ${{ secrets.YT_API_KEY }}
+        run: node scripts/scan.mjs
+
+      - name: Commit dashboard & history
+        run: |
+          git config user.name "niche-intel-bot"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          git add docs/ data/
+          if git diff --staged --quiet; then
+            echo "No changes to commit."
+          else
+            git commit -m "Daily brief $(date -u +%Y-%m-%d)"
+            git push
+          fi
+
+      - name: Open alert issue (emails you)
+        uses: actions/github-script@v7
+        with:
+          script: |
+            const fs = require('fs');
+            let alerts = [];
+            try { alerts = JSON.parse(fs.readFileSync('data/alerts.json','utf8')); } catch (e) {}
+            if (!alerts.length) { core.info('No alerts today.'); return; }
+            const lines = alerts.map(a => a.type === 'spike'
+              ? `- 🔥 **${a.title}** (${a.channel}) jumped **+${a.delta.toLocaleString()}** views (now ${a.views.toLocaleString()})`
+              : `- 📉 **${a.channel}** subscribers changed by **${a.deltaSubs.toLocaleString()}**`);
+            const today = new Date().toISOString().slice(0,10);
+            await github.rest.issues.create({
+              owner: context.repo.owner,
+              repo: context.repo.repo,
+              title: `🚨 Niche alert — ${today}`,
+              body: `Your daily competitor scan flagged ${alerts.length} alert(s):\n\n${lines.join('\n')}\n\nOpen your dashboard for the full brief.`
+            });
