@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-08-14
+# NEET Niche Brief — 2026-08-15
 
-**Verdict:** The niche is riding "Doctor" — strongest post is "World Longest IUPAC Name🔥😳 - #chemistry #pankajsir" (1.7L new views).
-- **Topic:** Doctor / independence / day
-- **Title formula:** ~70 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on help, only, kaise
+**Verdict:** The niche is riding "Independenceday" — strongest post is "Happy Independance Day to all Students 🇮🇳❤️ #independenceday #pw #sh" (3.4L new views).
+- **Topic:** Independenceday / day / shorts
+- **Title formula:** ~61 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
+- **Student emotion:** focused on only, help, miss
 
 ## Biggest movers
-1. **World Longest IUPAC Name🔥😳 - #chemistry #pankajsir** — Competition Wallah — 1.7L views (+1.7L)
-2. **Emotional Story of a Middle Class Parent to make their kid a Doctor #neetpreparation #neet2027** — Dr. Rakshita Singh — 47.8L views (+1.1L)
-3. **NCERT Diagram Series on Pi App!🔥 #pw #neet #SamaptiMam** — Competition Wallah — 1.2L views (+82.3K)
-4. **Independence Day : Special Gift for NEET Aspirants! 🔥🚀 #PW #NEET** — Competition Wallah — 78.9K views (+78.9K)
-5. **Buy Best Sunscreen- Doctor Explains #skincare  #sunscreen** — Dr. Rakshita Singh — 21.5L views (+57.9K)
-6. **14th August to 15th August TRANSITION 😂 - #independenceday #pw #shorts** — Competition Wallah — 46.4K views (+46.4K)
-7. **Happy 80th Independence Day 🇮🇳🫡 | #independenceday #pw #physicswallah** — Competition Wallah — 45.4K views (+45.4K)
-8. **Fever Treatment at Home 🌡️ | Paracetamol, Steam, Kadha, Antibiotics & When to See a Doctor** — Dr. Rakshita Singh — 1.4L views (+37.1K)
+1. **Happy Independance Day to all Students 🇮🇳❤️ #independenceday #pw #shorts** — Competition Wallah — 3.4L views (+3.4L)
+2. **Happy 80th Independence Day 🇮🇳🫡 | #independenceday #pw #physicswallah** — Competition Wallah — 2.6L views (+2.2L)
+3. **CELEBRATING 80th INDEPENDENCE DAY 🇮🇳❤️ #independenceday #pw #shorts** — Competition Wallah — 1.9L views (+1.9L)
+4. **NGO Students ke liye lagwaya Blackboard 🥹❤️ | #ngo #independenceday #shorts** — Competition Wallah — 1.8L views (+1.8L)
+5. **World Longest IUPAC Name🔥😳 - #chemistry #pankajsir** — Competition Wallah — 3.1L views (+1.4L)
+6. **Emotional Story of a Middle Class Parent to make their kid a Doctor #neetpreparation #neet2027** — Dr. Rakshita Singh — 48.8L views (+1.1L)
+7. **NGO ke students ko CAR RIDE Karwayi 🥹❤️ | #independenceday #carride #pw** — Competition Wallah — 96.8K views (+96.8K)
+8. **Chhoti Bachi me Desh ke upar sunai Poem ❤️ | #independenceday #poem #shorts** — Yakeen — 61.7K views (+61.7K)
 
-## New uploads (24)
-- 14th August to 15th August TRANSITION 😂 - #independenceday #pw #shorts — Competition Wallah (46.4K views)
-- Happy 80th Independence Day 🇮🇳🫡 | #independenceday #pw #physicswallah — Competition Wallah (45.4K views)
-- Independence Offer is Live for All Batches 🚨 | #independencedayoffer #pw #yakeen2027 — Competition Wallah (11.6K views)
-- World Longest IUPAC Name🔥😳 - #chemistry #pankajsir — Competition Wallah (1.7L views)
-- Independence Day : Special Gift for NEET Aspirants! 🔥🚀 #PW #NEET — Competition Wallah (78.9K views)
-- Manthan Live Freedom Festival Special offer #neet #15august  #neet2027 #sankalpneet — Sankalp NEET Vedantu (380 views)
-- NEET 2027 Biology Biomolecules By MD Sir #neet #biomolecules #mdsir — Sankalp NEET Vedantu (2.3K views)
-- Konsa Manthan Batch Best hai #neet #15august #sankalpneet #neet2027 #ytshorts — Sankalp NEET Vedantu (725 views)
-- Manthan Achiever Batch ko Kaise Use krein to Boost Marks in NEET 2027 #15august #neet2027 #ytshorts — Sankalp NEET Vedantu (469 views)
-- Vedantu Freedom Festival Special Offer Benefits for *Droppers*  #neet #neetdroppers #neet2027 — Sankalp NEET Vedantu (345 views)
+## New uploads (20)
+- NGO students ne kiya Dance 😍❤️ | #independenceday #dance #physicswallah — Competition Wallah (14.7K views)
+- NGO ke students ko CAR RIDE Karwayi 🥹❤️ | #independenceday #carride #pw — Competition Wallah (96.8K views)
+- Real Meaning of Independence Day 🇮🇳❤️ — Competition Wallah (39.9K views)
+- Azaadi Ka asli Matlab - Ft. STUDENTS LIFE 😳🔥 — Competition Wallah (40.6K views)
+- NGO Students ke liye lagwaya Blackboard 🥹❤️ | #ngo #independenceday #shorts — Competition Wallah (1.8L views)
+- CELEBRATING 80th INDEPENDENCE DAY 🇮🇳❤️ #independenceday #pw #shorts — Competition Wallah (1.9L views)
+- 🇮🇳 Happy Independence Day | Biggest Celebration! — Competition Wallah (35.9K views)
+- Happy Independance Day to all Students 🇮🇳❤️ #independenceday #pw #shorts — Competition Wallah (3.4L views)
+- MR Sir visited NGO on Independence Day 🇮🇳❤️ #pw #shorts — Yakeen (10.4K views)
+- Chhoti Bachi me Desh ke upar sunai Poem ❤️ | #independenceday #poem #shorts — Yakeen (61.7K views)
 
 ## Audience demand
-150 comments · 2 questions · 4 panic signals.
-Themes: help, only, kaise, fail, late, marks, fear, please
+150 comments · 1 questions · 4 panic signals.
+Themes: only, help, miss
