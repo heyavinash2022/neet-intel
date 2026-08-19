@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-08-18
+# NEET Niche Brief — 2026-08-19
 
-**Verdict:** The niche is riding "Chess" — strongest post is "My brother is finally a Cadet Pilot at Indigo🥹 Proudest #sister momen" (8.8L new views).
-- **Topic:** Chess / doctor / neet2027
-- **Title formula:** ~66 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on mbbs, backlog, please
+**Verdict:** The niche is riding "Viral" — strongest post is "My brother is finally a Cadet Pilot at Indigo🥹 Proudest #sister momen" (3.0L new views).
+- **Topic:** Viral / dance / doctor
+- **Title formula:** ~63 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
+- **Student emotion:** focused on backlog, please, only
 
 ## Biggest movers
-1. **My brother is finally a Cadet Pilot at Indigo🥹 Proudest #sister moment❤️‍🩹🙏🏻 #brothersister** — Dr. Rakshita Singh — 16.7L views (+8.8L)
-2. **PW Launching CHESSMATE Ft. Vidit Gujrathi | @chessmatebypw NEW ERA IN CHESS - 🔴 LIVE** — Physics Wallah - Alakh Pandey — 3.6L views (+2.6L)
-3. **Emotional Story of a Middle Class Parent to make their kid a Doctor #neetpreparation #neet2027** — Dr. Rakshita Singh — 51.3L views (+1.3L)
-4. **Day in my life as a retired 24yr old 💯🔥** — Dr. Parth Goyal — 1.1L views (+88.0K)
-5. **Unexpected Collab 🤯🥶 @viditchess** — Physics Wallah - Alakh Pandey — 5.0L views (+70.6K)
-6. **Playing Chess with GRANDMASTER 😱 Only on @PhysicsWallah | #chess #pw #shorts** — Competition Wallah — 3.3L views (+52.4K)
-7. **Post Exam Routine | MBBS PRACTICALS #routine #minivlog #mbbs #shorts** — Pratyaksh Agarwal — 68.0K views (+45.7K)
-8. **Viral CAT DANCE Trend 🕺 | DON’T JUDGE 😭#sibiling #funny #catdance #dance #viral** — Pratyaksh Agarwal — 36.5K views (+36.5K)
+1. **My brother is finally a Cadet Pilot at Indigo🥹 Proudest #sister moment❤️‍🩹🙏🏻 #brothersister** — Dr. Rakshita Singh — 19.7L views (+3.0L)
+2. **Viral CAT DANCE Trend 🕺 | DON’T JUDGE 😭#sibiling #funny #catdance #dance #viral** — Pratyaksh Agarwal — 3.0L views (+2.6L)
+3. **Emotional Story of a Middle Class Parent to make their kid a Doctor #neetpreparation #neet2027** — Dr. Rakshita Singh — 52.8L views (+1.5L)
+4. **Playing Chess with GRANDMASTER 😱 Only on @PhysicsWallah | #chess #pw #shorts** — Competition Wallah — 3.9L views (+59.1K)
+5. **Unexpected Collab 🤯🥶 @viditchess** — Physics Wallah - Alakh Pandey — 5.6L views (+51.6K)
+6. **PW Launching CHESSMATE Ft. Vidit Gujrathi | @chessmatebypw NEW ERA IN CHESS - 🔴 LIVE** — Physics Wallah - Alakh Pandey — 4.0L views (+42.9K)
+7. **Nipples types in woman which are absolutely normal #taboo #doctor #women** — Dr. Rakshita Singh — 49.9K views (+37.6K)
+8. **Buy Best Sunscreen- Doctor Explains #skincare  #sunscreen** — Dr. Rakshita Singh — 23.2L views (+34.9K)
 
-## New uploads (12)
-- Sarvesh Sir special message for Freedom Festival offer #neet #neet2027 #sankalpneet — Sankalp NEET Vedantu (315 views)
-- DOPA Actually Kya hai ?? #neet #neet2027 #sankalpneet #manthanbatch — Sankalp NEET Vedantu (1.3K views)
-- 🌿 Moss is Haploid, Fern is Diploid? 🤯 NEET Biology #ytshorts #neet #tarunsir #sankalpneet — Sankalp NEET Vedantu (3.2K views)
-- Revise Physics Notes in HALF the Time & Never Forget (Works 99% of the Time) — Physics by Prateek Jain (5.5K views)
-- Nipples types in woman which are absolutely normal #taboo #doctor #women — Dr. Rakshita Singh (12.2K views)
-- Why i am not choosing PG ❌ — Dr. Parth Goyal (2.4K views)
-- Life at 24 when you start earning at age of 18 — Dr. Parth Goyal (18.1K views)
-- Never devale yourself ❌ — Dr. Parth Goyal (6.8K views)
-- Don’t Attempt Mock Papers Until You Do This 🚨 — Dr. Parth Goyal (2.8K views)
-- NEET 2027- The MOST demanded Video ‼️finish your Backlogs now‼️ — Beauty Jha[MBBS] (1.4K views)
+## New uploads (17)
+- AIR Under 3000😱🔥 #pw #neet #physicswallah — Competition Wallah (8.1K views)
+- Paper Tough Ayega!!😳💯 #pw #neet #physicswallah — Competition Wallah (12.5K views)
+- 🚨 95% Students NCERT Biology Galat Padhte Hain! 360/360 Ka Sahi Tareeka #neet #neet2027 — Sankalp NEET Vedantu (1.1K views)
+- Kya special hai NEET 39 YEAR PYQ book mei #neet #neet2027 — Sankalp NEET Vedantu (1.1K views)
+- 95% Students Read NCERT Biology WRONG❌ Sahi Tareeka Kya Hai? (Score 360/360) — Sankalp NEET Vedantu (1.0K views)
+- Know this SECRET weapon for NEET 2027#neet #neet2027 — Sankalp NEET Vedantu (932 views)
+- FREE Handwritten Notes 🔥 CELL, NEET Biology 2027 #neet2027 #neet  #neetbiology #cell #manthanbatch — Sankalp NEET Vedantu (5.9K views)
+- Reality and Illusion😳💯 #pw #neet #physicswallah — Yakeen (1.6K views)
+- Yeh Padhai Nahi, Ladai Hai💯 #pw #neet #physicswallah — Yakeen (3.8K views)
+- Parents Ke Liye Ladai!!😳💯 #pw #neet #physicswallah — Yakeen (5.0K views)
 
 ## Audience demand
-150 comments · 8 questions · 3 panic signals.
-Themes: mbbs, backlog, please, only, help, kaise, rank
+150 comments · 0 questions · 3 panic signals.
+Themes: backlog, please, only, help
