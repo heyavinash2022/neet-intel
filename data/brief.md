@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-08-22
+# NEET Niche Brief — 2026-08-23
 
 **Verdict:** The niche is riding "Viral" — strongest post is "Viral CAT DANCE Trend 🕺 | DON’T JUDGE 😭#sibiling #funny #catdance #d" (1.6L new views).
-- **Topic:** Viral / dance / physicswallah
-- **Title formula:** ~62 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on backlog, please, only
+- **Topic:** Viral / dance / shorts
+- **Title formula:** ~67 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
+- **Student emotion:** focused on miss, please, kaise
 
 ## Biggest movers
-1. **Viral CAT DANCE Trend 🕺 | DON’T JUDGE 😭#sibiling #funny #catdance #dance #viral** — Pratyaksh Agarwal — 7.2L views (+1.6L)
-2. **Emotional Story of a Middle Class Parent to make their kid a Doctor #neetpreparation #neet2027** — Dr. Rakshita Singh — 56.5L views (+98.3K)
-3. **My brother is finally a Cadet Pilot at Indigo🥹 Proudest #sister moment❤️‍🩹🙏🏻 #brothersister** — Dr. Rakshita Singh — 23.1L views (+89.3K)
-4. **Vipin Sir Got No Chill🤭😂 #pw #neet #physicswallah** — Yakeen — 1.1L views (+69.7K)
-5. **Converting my MBBS SARKARI HOSTEL room to Dream ROOM 🤑| EP 2 #roomdecor #hostel #mbbs #shorts** — Pratyaksh Agarwal — 7.9L views (+67.7K)
-6. **Harsh Reality of MBBS😱💯 #pw #neet #physicswallah** — Competition Wallah — 63.0K views (+45.6K)
-7. **NEET Selection & Rank Deciding Factor💯 #pw #neet #physicswallah** — Competition Wallah — 40.9K views (+40.9K)
-8. **Backlog se pareshan ho chuke ho? #backlogclear #backlogs #pw** — Competition Wallah — 33.8K views (+33.8K)
+1. **Viral CAT DANCE Trend 🕺 | DON’T JUDGE 😭#sibiling #funny #catdance #dance #viral** — Pratyaksh Agarwal — 8.9L views (+1.6L)
+2. **Saleem Sir ne karwayi Auto Rickshaw Ride 🛺🔥 #autorickshaw #ride #pw #shorts** — Competition Wallah — 1.5L views (+1.5L)
+3. **Saleem Sir Viral Dance 😍🔥 #viraldance #pw #shorts** — Competition Wallah — 1.4L views (+1.4L)
+4. **SKC Sir on Maharashtra Incident 🥺❤️‍🩹#maharashtraincident #iphonecase #shorts** — Competition Wallah — 91.5K views (+91.5K)
+5. **My brother is finally a Cadet Pilot at Indigo🥹 Proudest #sister moment❤️‍🩹🙏🏻 #brothersister** — Dr. Rakshita Singh — 24.0L views (+88.3K)
+6. **Converting my MBBS SARKARI HOSTEL room to Dream ROOM 🤑| EP 2 #roomdecor #hostel #mbbs #shorts** — Pratyaksh Agarwal — 8.7L views (+76.8K)
+7. **Emotional Story of a Middle Class Parent to make their kid a Doctor #neetpreparation #neet2027** — Dr. Rakshita Singh — 57.2L views (+70.3K)
+8. **Padhai Ke Time NEGATIVE THOUGHT🥺💯 #pw #neet #physicswallah** — Competition Wallah — 64.2K views (+56.2K)
 
-## New uploads (17)
-- Padhai Ke Time NEGATIVE THOUGHT🥺💯 #pw #neet #physicswallah — Competition Wallah (7.9K views)
-- Backlog se pareshan ho chuke ho? #backlogclear #backlogs #pw — Competition Wallah (33.8K views)
-- NEET Selection & Rank Deciding Factor💯 #pw #neet #physicswallah — Competition Wallah (40.9K views)
-- Eklavya 2.0 Test Series अब तैयारी नहीं… SELECTION की PRACTICE होगी — Sankalp NEET Vedantu (0 views)
-- 🌸 Vallisneria Pollination 🤯 Sexual Reproduction in Flowering Plants | NEET 2027 #neet #ytshorts — Sankalp NEET Vedantu (1.3K views)
-- NEET 2027 का Exam Mode बदलेगा! | NO CBT? NTA का बड़ा UPDATE | ACP Sir — Sankalp NEET Vedantu (11.1K views)
-- Plant Kingdom 3D NCERT Based #ytshorts #neet #neetbiology #tarunsir — Sankalp NEET Vedantu (3.0K views)
-- Hum Akele Reh Jayenge!!💯 #pw #neet #physicswallah — Yakeen (18.2K views)
-- AIR 25 को Call ⚠️ 4 PWians in AIIMS Delhi - Full GUIDANCE #neet2027  — PW COMBATANT  (4.0K views)
-- Utilise your 8 Months Like this 🔥 700+ Score Strategy in NEET 2027 #neet2027  — PW COMBATANT  (3.2K views)
+## New uploads (14)
+- Saleem Sir Viral Dance 😍🔥 #viraldance #pw #shorts — Competition Wallah (1.4L views)
+- Saleem Sir & Pankaj Sir at Maharashtra Result Celebration 🔥 | @PWMaharashtra — Competition Wallah (45.1K views)
+- SKC Sir on Maharashtra Incident 🥺❤️‍🩹#maharashtraincident #iphonecase #shorts — Competition Wallah (91.5K views)
+- Saleem Sir ne karwayi Auto Rickshaw Ride 🛺🔥 #autorickshaw #ride #pw #shorts — Competition Wallah (1.5L views)
+- Kaise Bani Neetu Family ki Pahli doctor? BSc Nursing to NEET Topper Journey🔥 #neetmotivation #neet — Sankalp NEET Vedantu (528 views)
+- Kaise Use krein Manthan Batch ke Assignments? Hear out from our NEET Toppers #neet #neetmotivation — Sankalp NEET Vedantu (276 views)
+- 3+3+2 Rule | NEET 2027 Aspirants Must Watch This | ये Rule जान लिया तो Selection पक्का | Tarun Sir — Sankalp NEET Vedantu (4.2K views)
+- Still Missing GMC Cutoff by Some Marks?😓 Watch this to know #neet #neetstrategy #neet2027 — Sankalp NEET Vedantu (331 views)
+- Something BIG Is Coming👀… | EKLAVYA AITS 2.0 Official Teaser OUT | NEET 2027 | Sankalp NEET Vedantu — Sankalp NEET Vedantu (741 views)
+- Cell unit of life | Golgi apparatus | neet 2027 #neet #neetbiology #tarunsir — Sankalp NEET Vedantu (3.3K views)
 
 ## Audience demand
-150 comments · 5 questions · 3 panic signals.
-Themes: backlog, please, only, leak, seat, mbbs, drop, dropper, cooked, miss, must, kaise
+150 comments · 7 questions · 0 panic signals.
+Themes: miss, please, kaise, only, backlog, government, must, late, help, mbbs
