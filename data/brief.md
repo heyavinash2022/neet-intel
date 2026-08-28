@@ -1,32 +1,32 @@
 # NEET Niche Brief — 2026-08-28
 
-**Verdict:** The niche is riding "Physicswallah" — strongest post is "NEET 2027: 400 Marks Ka Hoga? CBT? Toughness Level?? | Physics Wallah" (2.5L new views).
-- **Topic:** Physicswallah / viral / dance
-- **Title formula:** ~66 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on please, drop, dropper
+**Verdict:** The niche is riding "Viral" — strongest post is "Viral CAT DANCE Trend 🕺 | DON’T JUDGE 😭#sibiling #funny #catdance #d" (5.0L new views).
+- **Topic:** Viral / dance / rakshabandhan
+- **Title formula:** ~58 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
+- **Student emotion:** focused on help, only, late
 
 ## Biggest movers
-1. **NEET 2027: 400 Marks Ka Hoga? CBT? Toughness Level?? | Physics Wallah** — Competition Wallah — 3.8L views (+2.5L)
-2. **Viral CAT DANCE Trend 🕺 | DON’T JUDGE 😭#sibiling #funny #catdance #dance #viral** — Pratyaksh Agarwal — 14.7L views (+2.4L)
-3. **Happy Rakshabandhan Bachhon🤍🌼 - #rakshabandhan #motivation #saleemsir** — Competition Wallah — 2.2L views (+2.2L)
-4. **Samapti Ma'am Ka Box Chori Hogya 😱** — Physics Wallah - Alakh Pandey — 3.2L views (+1.9L)
-5. **Samapti Mam ko Special Message Aaya!!🥹❤️ #pw #neet #physicswallah** — Competition Wallah — 2.0L views (+1.6L)
-6. **Believe in the process☮️** — Dr. Parth Goyal — 95.2K views (+95.2K)
-7. **Surprise ya khatra? PW Studio reveal ⚠️🤯 #physicswallah #pw #surprise** — Physics Wallah - Alakh Pandey — 84.3K views (+84.3K)
-8. **PW Vidyapeeth - Marks Improvement Program Launch🔥** — Competition Wallah — 80.3K views (+80.3K)
+1. **Viral CAT DANCE Trend 🕺 | DON’T JUDGE 😭#sibiling #funny #catdance #dance #viral** — Pratyaksh Agarwal — 19.8L views (+5.0L)
+2. **Believe in the process☮️** — Dr. Parth Goyal — 3.4L views (+2.4L)
+3. **Happy Rakshabandhan Bachhon🤍🌼 - #rakshabandhan #motivation #saleemsir** — Competition Wallah — 3.9L views (+1.7L)
+4. **Biggest Surprise 🔥** — Physics Wallah - Alakh Pandey — 1.3L views (+1.3L)
+5. **Saleem Sir Playing Blindfold Challenge🔥 #pw #neet #physicswallah** — Competition Wallah — 79.5K views (+79.5K)
+6. **Received Rakhi gift from my younger brother 🥹🤗🎁** — Beauty Jha[MBBS] — 60.9K views (+47.9K)
+7. **Happy Rakshabandhan to all ❤️ #rakshabandhan #pw #shorts** — Competition Wallah — 40.6K views (+40.6K)
+8. **PW me hui 1 Crore ki deal 😱** — Physics Wallah - Alakh Pandey — 1.1L views (+38.0K)
 
-## New uploads (40)
-- Happy Rakshabandhan Bachhon🤍🌼 - #rakshabandhan #motivation #saleemsir — Competition Wallah (2.2L views)
-- Giveaway Announcement by Archana Mam🥹❤️ #pw #neet #physicswallah — Competition Wallah (60.1K views)
-- PW Vidyapeeth - Marks Improvement Program Launch🔥 — Competition Wallah (80.3K views)
-- Rank se Jawab Dena Hai!!☠️🔥 #pw #neet #physicswallah — Competition Wallah (69.8K views)
-- Easiest Way to Solve any Problem💯 #pw #neet #physicswallah — Competition Wallah (54.4K views)
-- MR Sir on Haters☠️😈 #pw #neet #physicswallah — Competition Wallah (56.3K views)
-- PW me hui 1 Crore ki deal 😱 — Physics Wallah - Alakh Pandey (73.1K views)
-- Surprise ya khatra? PW Studio reveal ⚠️🤯 #physicswallah #pw #surprise — Physics Wallah - Alakh Pandey (84.3K views)
-- 5 Problems stopping your NEET  selection #neet #neettesteries #neetpreparation — Sankalp NEET Vedantu (3.3K views)
-- List of Most Important Topics 🔥 NEET 2027 #neet #neet2027 #tarunsir — Sankalp NEET Vedantu (3.0K views)
+## New uploads (17)
+- Secret Revealed behind the Blindfold Challenge 😜😂 #pw #shorts — Competition Wallah (28.2K views)
+- Saleem Sir Playing Blindfold Challenge🔥 #pw #neet #physicswallah — Competition Wallah (79.5K views)
+- Happy Rakshabandhan to all ❤️ #rakshabandhan #pw #shorts — Competition Wallah (40.6K views)
+- Biggest Surprise 🔥 — Physics Wallah - Alakh Pandey (1.3L views)
+- 🚨 NTA has invited suggestions on Exam Reforms! #neet2027 #neet #tarunsir #nta — Sankalp NEET Vedantu (32.6K views)
+- Crack NEET 2027 with This 1 Secret Resource🤫 Must Watch this For  NEET 2027🔥 #neet #neettesteries — Sankalp NEET Vedantu (5.5K views)
+- Ye kya Kiya ACP sir ne?🤯 #neet #neet2027 — Sankalp NEET Vedantu (4.3K views)
+- Eklavya 2.0 HWT Test Series Vs Other NEET Test Series 🤔 Which is Best ? Sarvesh sir — Sankalp NEET Vedantu (0 views)
+- 80 Percent Paper - 350 Topics #neet #neet2027 — Sankalp NEET Vedantu (8.1K views)
+- Happy Rakshabandhan!!❤️🫶 #pw #neet #physicswallah — Yakeen (1.6K views)
 
 ## Audience demand
-150 comments · 5 questions · 0 panic signals.
-Themes: please, drop, dropper, late, marks, only, help
+137 comments · 1 questions · 0 panic signals.
+Themes: help, only, late, kaise, drop, dropper, please
