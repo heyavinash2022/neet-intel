@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-09-02
+# NEET Niche Brief — 2026-09-03
 
-**Verdict:** The niche is riding "Doctor" — strongest post is "Ye KYA Kar Diya PW Ne ??" (7.9L new views).
-- **Topic:** Doctor / story / viral
-- **Title formula:** ~59 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on only, miss, please
+**Verdict:** The niche is riding "Earners" — strongest post is "How to Earn ₹1 Lakh Per Month ??@PWEarnersPC" (16.1L new views).
+- **Topic:** Earners / samapti / viral
+- **Title formula:** ~59 chars, usually with emoji (‼️❓📉).
+- **Student emotion:** focused on please, government, late
 
 ## Biggest movers
-1. **Ye KYA Kar Diya PW Ne ??** — Physics Wallah - Alakh Pandey — 9.0L views (+7.9L)
-2. **Untold Story of my Parents that might change motivate you like anything #motivation #doctor** — Dr. Rakshita Singh — 6.8L views (+5.7L)
-3. **Viral CAT DANCE Trend 🕺 | DON’T JUDGE 😭#sibiling #funny #catdance #dance #viral** — Pratyaksh Agarwal — 45.7L views (+2.5L)
-4. **My brother is finally a Cadet Pilot at Indigo🥹 Proudest #sister moment❤️‍🩹🙏🏻 #brothersister** — Dr. Rakshita Singh — 27.6L views (+50.5K)
-5. **Hospitals Crazy case- ₹7 crore drugs in body- Shocking #doctor #hospital** — Dr. Rakshita Singh — 14.3L views (+50.2K)
-6. **Believe in the process☮️** — Dr. Parth Goyal — 6.1L views (+38.3K)
-7. **See you Tomorrow🤣 ​⁠ @PhysicsWallah  - #tulikamam #funny #meme** — Competition Wallah — 2.9L views (+33.4K)
-8. **Iske Baad Kahi Nahi Jaoge!!💯🔥 #pw #neet #physicswallah** — Competition Wallah — 33.0K views (+33.0K)
+1. **How to Earn ₹1 Lakh Per Month ??@PWEarnersPC** — Physics Wallah - Alakh Pandey — 16.1L views (+16.1L)
+2. **PW Teachers ki Salary !! #earners** — Physics Wallah - Alakh Pandey — 12.4L views (+12.4L)
+3. **Samapti Mam se Manga Udhaar !! #earners** — Physics Wallah - Alakh Pandey — 9.0L views (+9.0L)
+4. **Rajwant Sir ne Kari Chori 🤯 #pw #rajwantsir** — Physics Wallah - Alakh Pandey — 5.2L views (+5.2L)
+5. **FREE Library in Jharkhand ❤️ Where are you from?** — Physics Wallah - Alakh Pandey — 4.3L views (+4.3L)
+6. **Samapti Ma'am Gym In Office 😱** — Physics Wallah - Alakh Pandey — 3.5L views (+3.5L)
+7. **Untold Story of my Parents that might change motivate you like anything #motivation #doctor** — Dr. Rakshita Singh — 9.6L views (+2.8L)
+8. **Viral CAT DANCE Trend 🕺 | DON’T JUDGE 😭#sibiling #funny #catdance #dance #viral** — Pratyaksh Agarwal — 48.1L views (+2.3L)
 
-## New uploads (19)
-- Every Student Should Listen to this💯 #pw #neet #physicswallah — Competition Wallah (15.2K views)
-- Iske Baad Kahi Nahi Jaoge!!💯🔥 #pw #neet #physicswallah — Competition Wallah (33.0K views)
-- The PW **** is Coming 🔥 | This is New 21st Century — Physics Wallah - Alakh Pandey (0 views)
-- Correct Answer dene wale ko gift milega 🔥 Sarvesh Sir #neet #neet2027 — Sankalp NEET Vedantu (696 views)
-- NEET 2027 Aspirants Are you on Track?😰| REALISTIC PLAN BY TARUN SIR #neet2027 #neetpreparation  — Sankalp NEET Vedantu (1.6K views)
-- Relative Motion Problem 🔥 ACP Sir #neet #neet2027 #acpsir #sankalpneet — Sankalp NEET Vedantu (2.9K views)
-- Bahut Badi Galti😱💯 #pw #neet #physicswallah — Yakeen (11.6K views)
-- The Ultimate NEET 2027 Timetable | 99% Students Will Quit This Routine! | Dr. Anand Mani — Dr. Anand Mani (1.9K views)
-- Uttar Pradesh Private Medical Colleges Fees Increased | NTA Latest Update | NEET 2026 Counselling — Dr. Anand Mani (6.1K views)
-- NEET 2027 Crucial Update 🔥| Yawar Sir — Unacademy NEET English (298 views)
+## New uploads (17)
+- Special Surprise by GuruMaa🔥❤️ @PWNEET-Official #pw #neet #physicswallah — Competition Wallah (4.9K views)
+- Apni Pehchan Esi Banao!!😳🔥 #pw #neet #physicswallah — Competition Wallah (12.5K views)
+- Wo aane wala hai 🔥 ‎⁨only on @PhysicsWallah  | #surprise #pw #shorts — Competition Wallah (24.8K views)
+- Saleem Sir Ravi Kishan Viral Dance☠️😂 #pw #neet #physicswallah — Competition Wallah (30.7K views)
+- Intezaar Khatam Hone Wala Hai | PW **** Is Coming — Physics Wallah - Alakh Pandey (1.2L views)
+- Clear your concept with ACP Sir #neet #neet2027 — Sankalp NEET Vedantu (1.5K views)
+- क्या NEET UG 2027 CBT (Computer Based Test) mode में हो सकता है? 👀 #neet #neet2027strategy — Sankalp NEET Vedantu (39.4K views)
+- I Will Make You Uncomfortable!!😡💯 #pw #neet #physicswallah — Yakeen (4.3K views)
+- Low Marks?? Selection Possible??😳💯 #pw #neet #physicswallah — Yakeen (7.2K views)
+- Watch Till End☠️😂 #pw #neet #physicswallah — Yakeen (10.7K views)
 
 ## Audience demand
-150 comments · 1 questions · 1 panic signals.
-Themes: only, miss, please, help, waste, late, drop, dropper, mbbs
+150 comments · 5 questions · 1 panic signals.
+Themes: please, government, late, only, leak, help, backlog, mbbs
