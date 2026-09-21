@@ -1,20 +1,12 @@
 [
   {
-    "type": "spike",
-    "title": "Offline Samvaad with Students | PhysicsWallah",
-    "channel": "Competition Wallah",
-    "delta": 286461,
-    "views": 286461,
-    "id": "I6JK8pRlUAQ"
-  },
-  {
     "type": "subs",
     "channel": "Competition Wallah",
-    "deltaSubs": -10000
+    "deltaSubs": 10000
   },
   {
     "type": "subs",
     "channel": "Yakeen",
-    "deltaSubs": -10000
+    "deltaSubs": 10000
   }
 ]
