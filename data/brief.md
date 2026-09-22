@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-09-21
+# NEET Niche Brief — 2026-09-22
 
-**Verdict:** The niche is riding "Physicswallah" — strongest post is "AIIMS College ke baad saare college bekar hai? 😭 | #pw #neet2027 #aii" (98.7K new views).
-- **Topic:** Physicswallah / botany / class
-- **Title formula:** ~65 chars, usually with a year (NEET 2027), emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on drop, dropper, mbbs
+**Verdict:** The niche is riding "Physicswallah" — strongest post is "You need to hear this before you decide to become a DOCTOR. 🩺 #shorts" (87.6K new views).
+- **Topic:** Physicswallah / shorts / mbbs
+- **Title formula:** ~66 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
+- **Student emotion:** focused on drop, mbbs, dropper
 
 ## Biggest movers
-1. **AIIMS College ke baad saare college bekar hai? 😭 | #pw #neet2027 #aiimsdelhi** — Competition Wallah — 1.2L views (+98.7K)
-2. **World's Best Botany Teacher 😱🔥 | #pw #physicswallah #botany** — Competition Wallah — 97.8K views (+97.8K)
-3. **Vipin Sir APJ Abdul Kalam Award🥇🔥 #pw #neet #physicswallah** — Competition Wallah — 88.3K views (+88.3K)
-4. **Offline Samvaad with Students | PhysicsWallah** — Competition Wallah — 3.6L views (+72.3K)
-5. **1st Free Class of Physics by Pawan Sir🔥 || Yakeen NEET 4.0 2027** — Yakeen — 64.9K views (+64.9K)
-6. **1st Free Class of Botany by Yashika Mam🔥 || Yakeen NEET 4.0 2027** — Yakeen — 62.7K views (+62.7K)
-7. **Viral CAT DANCE Trend 🕺 | DON’T JUDGE 😭#sibiling #funny #catdance #dance #viral** — Pratyaksh Agarwal — 73.0L views (+58.9K)
-8. **1st Free Class of Chemistry by Deepak Sir🔥 || Yakeen NEET 4.0 2027** — Yakeen — 55.5K views (+55.5K)
+1. **You need to hear this before you decide to become a DOCTOR. 🩺 #shorts #mbbs #neet** — The Apron Boy — 87.6K views (+87.6K)
+2. **Vipin Sir APJ Abdul Kalam Award🥇🔥 #pw #neet #physicswallah** — Competition Wallah — 1.6L views (+66.8K)
+3. **1st Free Class of Zoology by Diksha Mam🔥 || Yakeen NEET 4.0 2027** — Yakeen — 63.0K views (+63.0K)
+4. **Viral CAT DANCE Trend 🕺 | DON’T JUDGE 😭#sibiling #funny #catdance #dance #viral** — Pratyaksh Agarwal — 73.5L views (+53.6K)
+5. **NEET 2027: Must Watch for Every Aspirant!🔥 || PhysicsWallah** — Yakeen — 40.4K views (+40.4K)
+6. **Neet Prep🙂🙃** — Dr. Parth Goyal — 29.4K views (+29.4K)
+7. **World's Best Botany Teacher 😱🔥 | #pw #physicswallah #botany** — Competition Wallah — 1.3L views (+28.4K)
+8. **Tensed? This Video is for You!!💯 #pw #neet #physicswallah** — Competition Wallah — 26.2K views (+26.2K)
 
-## New uploads (30)
-- Vipin Sir APJ Abdul Kalam Award🥇🔥 #pw #neet #physicswallah — Competition Wallah (88.3K views)
-- World's Best Botany Teacher 😱🔥 | #pw #physicswallah #botany — Competition Wallah (97.8K views)
-- Still Not Able to Revise Regularly for NEET 2027? Watch This👀 #neet #neettesteries — Sankalp NEET Vedantu (1.7K views)
-- MOLE CONCEPT PART 2 | NEET 2027 Chemistry | Target 150 Series | NEET 2027 | Sarvesh Sir — Sankalp NEET Vedantu (0 views)
-- MOLE CONCEPT PART 1 | NEET 2027 Chemistry | Target 150 Series | NEET 2027 | Sarvesh Sir — Sankalp NEET Vedantu (0 views)
-- 2 IMPORTANT UPDATES You CAN’T MISS 🔥 NEET 2027 #neet #neet2027 — Sankalp NEET Vedantu (6.2K views)
-- Don't make this mistake #neet #neetmotivation #neetstrategy #neet2027 — Sankalp NEET Vedantu (2.2K views)
-- NEET 2027 PHYSICS | Projectile motion OneShot | Physics Masterclass | ACP Sir — Sankalp NEET Vedantu (0 views)
-- BIOMOLECULES PART 3 | NEET 2027 ZOOLOGY | NCERT DEEP LINES ULTIMATE | NEET 2027 | MD Sir — Sankalp NEET Vedantu (0 views)
-- 1st Free Class of Zoology by Diksha Mam🔥 || Yakeen NEET 4.0 2027 — Yakeen (0 views)
+## New uploads (23)
+- Following Hobbies is TIMEWASTE? 😰 |  #pw #physicswallah #shorts — Competition Wallah (21.8K views)
+- Tensed? This Video is for You!!💯 #pw #neet #physicswallah — Competition Wallah (26.2K views)
+- Your Last Chance for NEET 2027 Selection is Here: MANTHAN 4.0 Batch Launch🔥 #neet #neetdroppers — Sankalp NEET Vedantu (5.0K views)
+- Animal Kingdom PART 2 | NEET 2027 ZOOLOGY | NCERT DEEP LINES ULTIMATE | NEET 2027 | MD Sir — Sankalp NEET Vedantu (0 views)
+- Animal Kingdom PART 1 | NEET 2027 ZOOLOGY | NCERT DEEP LINES ULTIMATE | NEET 2027 | MD Sir — Sankalp NEET Vedantu (0 views)
+- Botany Masterclass By Tarun Sir #neet #neet2027 #tarunsir — Sankalp NEET Vedantu (3.2K views)
+- NEET 2027: Must Watch for Every Aspirant!🔥 || PhysicsWallah — Yakeen (40.4K views)
+- Yakeen NEET 4.0 Zoology First Class🔥 #pw #neet #physicswallah — Yakeen (2.9K views)
+- Heart Disorders You Must Know! 🔥 | NEET Biology — Dr. Anand Mani (1.1K views)
+- 👉 Important Drugs & Their Functions 💊 | NEET Biology Quick Revision — Dr. Anand Mani (862 views)
 
 ## Audience demand
-150 comments · 1 questions · 0 panic signals.
-Themes: drop, dropper, mbbs, only, rank, please, backlog, seat
+139 comments · 2 questions · 1 panic signals.
+Themes: drop, mbbs, dropper, seat, government, rank, only, please, late
