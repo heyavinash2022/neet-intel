@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-09-29
+# NEET Niche Brief — 2026-09-30
 
-**Verdict:** The niche is riding "Surprise" — strongest post is "Samapti Ma'am ka Purse Hua Chori !! - #surprise" (3.8L new views).
-- **Topic:** Surprise / physicswallah / months
-- **Title formula:** ~61 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
+**Verdict:** The niche is riding "Class" — strongest post is "Yakeen 2.0 2027 - 1st Free Class of Inorganic Chemistry by Mohit Sir🔥" (2.0L new views).
+- **Topic:** Class / yakeen / chemistry
+- **Title formula:** ~59 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
 - **Student emotion:** focused on miss, only, drop
 
 ## Biggest movers
-1. **Samapti Ma'am ka Purse Hua Chori !! - #surprise** — Physics Wallah - Alakh Pandey — 6.0L views (+3.8L)
-2. **Ritik sir ko diya Pankaj sir ne dhoka!😳🔥** — Physics Wallah - Alakh Pandey — 9.6L views (+1.7L)
-3. **NEET Selection TOUGH Nahi Hai!!😳💯 #pw #neet #physicswallah** — Competition Wallah — 1.4L views (+1.4L)
-4. **Think Again🔥💪🏻 #pw #neet #physicswallah** — Competition Wallah — 1.3L views (+1.3L)
-5. **Last Class of Sudhanshu Sir & Amit Sir❤️ | Yakeen 2.0 #pw #neet** — Competition Wallah — 1.0L views (+1.0L)
-6. **October to April: Follow These 3 Things 🔥 | NEET 2027 Masterplan** — Yakeen — 73.9K views (+73.9K)
-7. **NEET 360🔥 - Perfect Tracker for you - #neet360** — Competition Wallah — 3.2L views (+59.4K)
-8. **Only Neet aspirants understand this 😎🔥** — Dr. Parth Goyal — 59.1K views (+59.1K)
+1. **Yakeen 2.0 2027 - 1st Free Class of Inorganic Chemistry by Mohit Sir🔥 || NEET 2027** — Yakeen — 2.0L views (+2.0L)
+2. **Samapti Ma'am ka Purse Hua Chori !! - #surprise** — Physics Wallah - Alakh Pandey — 8.0L views (+2.0L)
+3. **Yakeen 2.0 2027 - 1st Free Class of Inorganic Chemistry by OM Sir🔥 || NEET 2027** — Yakeen — 1.8L views (+1.8L)
+4. **Pankaj Sir ki dookaan in PW Office😳** — Physics Wallah - Alakh Pandey — 1.7L views (+1.7L)
+5. **Last Class of Sudhanshu Sir & Amit Sir❤️ | Yakeen 2.0 #pw #neet** — Competition Wallah — 2.3L views (+1.3L)
+6. **Think Again🔥💪🏻 #pw #neet #physicswallah** — Competition Wallah — 2.5L views (+1.3L)
+7. **200 Din Bache Hai NEET ke Liye😳 #pw #neet #physicswallah** — Yakeen — 74.8K views (+74.8K)
+8. **AIR 1 CHEMISTRY ROADMAP 🔥| NEET 2027 | Last 6 Months to Score 175+ ** — OM PRABHU AIIMS DELHI — 1.0L views (+74.5K)
 
-## New uploads (26)
-- Last Class of Sudhanshu Sir & Amit Sir❤️ | Yakeen 2.0 #pw #neet — Competition Wallah (1.0L views)
-- Think Again🔥💪🏻 #pw #neet #physicswallah — Competition Wallah (1.3L views)
-- NEET Selection TOUGH Nahi Hai!!😳💯 #pw #neet #physicswallah — Competition Wallah (1.4L views)
-- Plant Kingdom One Shot | NEET 2027 | BOTANY MASTERCLASS | NCERT BASED | Tarun Sir — Sankalp NEET Vedantu (6.0K views)
-- ULTIMATE Surprise For NEET 2027 Aspirants🔥FLAT 50% OFF on all Courses🚀 #neet2027 — Sankalp NEET Vedantu (4.9K views)
-- Getting Confused in Solving Conceptual Biology Questions in Exam?🤔 Watch this Now #neet #neetbooks — Sankalp NEET Vedantu (750 views)
-- MANTHAN 4.0 | NEET 2027 CHEMISTRY | 1st FREE CLASS on YouTube | By Sarvesh Sir — Sankalp NEET Vedantu (9.1K views)
-- Yakeen 2.0 2027 - 1st Free Class of Inorganic Chemistry by Mohit Sir🔥 || NEET 2027 — Yakeen (0 views)
-- Yakeen 2.0 2027 - 1st Free Class of Inorganic Chemistry by OM Sir🔥 || NEET 2027 — Yakeen (0 views)
-- October to April: Follow These 3 Things 🔥 | NEET 2027 Masterplan — Yakeen (73.9K views)
+## New uploads (22)
+- @PhysicsWallah - Shiksha Mohatsav Vibe🔥 - #vipinsir — Competition Wallah (47.0K views)
+- Viral Video: Vipin Sir's FANGIRL Couldn't Hold back her tears on VC 🥹❤️ #pw #viral — Competition Wallah (52.5K views)
+- Month End Sale Ending Today🔥 - #sale — Competition Wallah (21.2K views)
+- Pankaj Sir ki dookaan in PW Office😳 — Physics Wallah - Alakh Pandey (1.7L views)
+- SONG पहचानो… MANTHAN BATCH पर DISCOUNT पाओ #ytshorts #neet #acpsir #neet2027strategy — Sankalp NEET Vedantu (1.2K views)
+- कही आप ये तो MISS नहीं कर रहे #ytshorts #neet #neet2027 #mdsir — Sankalp NEET Vedantu (1.5K views)
+- Plant Kingdom | 100 Level UP Questions | BOTANY MASTERCLASS | Tarun Sir — Sankalp NEET Vedantu (0 views)
+- Yeh DREAM Tha Mera🥺❤️ #pw #neet #physicswallah — Yakeen (5.4K views)
+- Life is Greater than This💯 #pw #neet #physicswallah — Yakeen (6.0K views)
+- Animal Tissue in 1 Shot | NCERT Line by Line🔥 | NEET 2027 — Yakeen (13.1K views)
 
 ## Audience demand
-150 comments · 2 questions · 0 panic signals.
-Themes: miss, only, drop, dropper, late, please, backlog, waste, mbbs
+150 comments · 1 questions · 0 panic signals.
+Themes: miss, only, drop, dropper, waste, backlog, please, reneet
