@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-09-30
+# NEET Niche Brief — 2026-10-01
 
-**Verdict:** The niche is riding "Class" — strongest post is "Yakeen 2.0 2027 - 1st Free Class of Inorganic Chemistry by Mohit Sir🔥" (2.0L new views).
-- **Topic:** Class / yakeen / chemistry
-- **Title formula:** ~59 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on miss, only, drop
+**Verdict:** The niche is riding "Shiksha" — strongest post is "Starting SHIKSHA - 1st October 2026 | Official Launch By PW" (5.4L new views).
+- **Topic:** Shiksha / 1st / pankaj
+- **Title formula:** ~62 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
+- **Student emotion:** focused on only, please, drop
 
 ## Biggest movers
-1. **Yakeen 2.0 2027 - 1st Free Class of Inorganic Chemistry by Mohit Sir🔥 || NEET 2027** — Yakeen — 2.0L views (+2.0L)
-2. **Samapti Ma'am ka Purse Hua Chori !! - #surprise** — Physics Wallah - Alakh Pandey — 8.0L views (+2.0L)
-3. **Yakeen 2.0 2027 - 1st Free Class of Inorganic Chemistry by OM Sir🔥 || NEET 2027** — Yakeen — 1.8L views (+1.8L)
-4. **Pankaj Sir ki dookaan in PW Office😳** — Physics Wallah - Alakh Pandey — 1.7L views (+1.7L)
-5. **Last Class of Sudhanshu Sir & Amit Sir❤️ | Yakeen 2.0 #pw #neet** — Competition Wallah — 2.3L views (+1.3L)
-6. **Think Again🔥💪🏻 #pw #neet #physicswallah** — Competition Wallah — 2.5L views (+1.3L)
-7. **200 Din Bache Hai NEET ke Liye😳 #pw #neet #physicswallah** — Yakeen — 74.8K views (+74.8K)
-8. **AIR 1 CHEMISTRY ROADMAP 🔥| NEET 2027 | Last 6 Months to Score 175+ ** — OM PRABHU AIIMS DELHI — 1.0L views (+74.5K)
+1. **Starting SHIKSHA - 1st October 2026 | Official Launch By PW** — Physics Wallah - Alakh Pandey — 5.4L views (+5.4L)
+2. **Pankaj Sir ki dookaan in PW Office😳** — Physics Wallah - Alakh Pandey — 5.5L views (+3.8L)
+3. **@PhysicsWallah - Shiksha Mohatsav Vibe🔥 - #vipinsir** — Competition Wallah — 1.5L views (+1.0L)
+4. **Think Again🔥💪🏻 #pw #neet #physicswallah** — Competition Wallah — 3.3L views (+72.4K)
+5. **Emotional Story of a Middle Class Parent to make their kid a Doctor #neetpreparation #neet2027** — Dr. Rakshita Singh — 68.8L views (+71.2K)
+6. **Samapti Ma'am ka Purse Hua Chori !! - #surprise** — Physics Wallah - Alakh Pandey — 8.7L views (+70.2K)
+7. **AIR 1 CHEMISTRY ROADMAP 🔥| NEET 2027 | Last 6 Months to Score 175+ ** — OM PRABHU AIIMS DELHI — 1.6L views (+60.3K)
+8. **My brother is finally a Cadet Pilot at Indigo🥹 Proudest #sister moment❤️‍🩹🙏🏻 #brothersister** — Dr. Rakshita Singh — 37.7L views (+59.7K)
 
-## New uploads (22)
-- @PhysicsWallah - Shiksha Mohatsav Vibe🔥 - #vipinsir — Competition Wallah (47.0K views)
-- Viral Video: Vipin Sir's FANGIRL Couldn't Hold back her tears on VC 🥹❤️ #pw #viral — Competition Wallah (52.5K views)
-- Month End Sale Ending Today🔥 - #sale — Competition Wallah (21.2K views)
-- Pankaj Sir ki dookaan in PW Office😳 — Physics Wallah - Alakh Pandey (1.7L views)
-- SONG पहचानो… MANTHAN BATCH पर DISCOUNT पाओ #ytshorts #neet #acpsir #neet2027strategy — Sankalp NEET Vedantu (1.2K views)
-- कही आप ये तो MISS नहीं कर रहे #ytshorts #neet #neet2027 #mdsir — Sankalp NEET Vedantu (1.5K views)
-- Plant Kingdom | 100 Level UP Questions | BOTANY MASTERCLASS | Tarun Sir — Sankalp NEET Vedantu (0 views)
-- Yeh DREAM Tha Mera🥺❤️ #pw #neet #physicswallah — Yakeen (5.4K views)
-- Life is Greater than This💯 #pw #neet #physicswallah — Yakeen (6.0K views)
-- Animal Tissue in 1 Shot | NCERT Line by Line🔥 | NEET 2027 — Yakeen (13.1K views)
+## New uploads (18)
+- BREATHING & EXCHANGE OF GASES Complete Chapter in One Video || Class 11th NEET || Hyperbiologist — Competition Wallah (56.8K views)
+- 200% Gurantee Hai!!💯 #pw #neet #physicswallah — Competition Wallah (46.0K views)
+- FREE Series - Complete Physical Chemistry in One Shot🔥 — Competition Wallah (0 views)
+- ये Session Miss मत करना #neet #ytshorts #neet2027 #tarunsir #plantkingdom — Sankalp NEET Vedantu (1.6K views)
+- CIRCULAR MOTION | NEET 2027 PHYSICS | ZERO TO ADVANCE LEVEL PHYSICS | NEET 2027 | ACP Sir — Sankalp NEET Vedantu (0 views)
+- Work Power & Energy | NEET 2027 PHYSICS | ZERO TO ADVANCE LEVEL PHYSICS | NEET 2027 | ACP Sir — Sankalp NEET Vedantu (0 views)
+- NTA Syllabus Mistake or Hidden Topics NEET 2027 #neet #nta #neet2027 #tarunsir — Sankalp NEET Vedantu (4.5K views)
+- Major problems Faced by NEET 2027 Aspirants #neet #neet2027 #tarunsir — Sankalp NEET Vedantu (3.3K views)
+- Motion in a Plane One Shot for NEET 2027 | Concept, Tricks & PYQs | Physics Wallah — Yakeen (10.1K views)
+- CBT Mode Confirmed For NEET 2027 ? | TOI Report | NTA Latest Update | Dr. Anand Mani — Dr. Anand Mani (28.1K views)
 
 ## Audience demand
-150 comments · 1 questions · 0 panic signals.
-Themes: miss, only, drop, dropper, waste, backlog, please, reneet
+150 comments · 1 questions · 2 panic signals.
+Themes: only, please, drop, dropper, miss, waste, must, left
