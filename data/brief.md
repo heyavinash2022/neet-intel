@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-10-14
+# NEET Niche Brief — 2026-10-15
 
-**Verdict:** The niche is riding "Lag" — strongest post is "Aap bhi kar skte ho if I did😍💎🔥" (3.9L new views).
-- **Topic:** Lag / backlog / physicswallah
-- **Title formula:** ~61 chars, usually with a year (NEET 2027), emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on drop, dropper, backlog
+**Verdict:** The niche is riding "200" — strongest post is "200 Din baad NEET Exam🔥 #pw #physicswallah #shorts" (2.7L new views).
+- **Topic:** 200 / physicswallah / shorts
+- **Title formula:** ~62 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
+- **Student emotion:** focused on backlog, please, panic
 
 ## Biggest movers
-1. **Aap bhi kar skte ho if I did😍💎🔥** — Beauty Jha[MBBS] — 3.9L views (+3.9L)
-2. **Backlog / Revision Lag / Demotivation??😢 || HONEST Talk for NEET 2027🔥** — Competition Wallah — 2.5L views (+2.5L)
-3. **PW Ka System Hua HACK ⚠️** — Physics Wallah - Alakh Pandey — 3.3L views (+1.1L)
-4. **Stop Fooling Yourself! 🚨 | NEET 2027 Reality Check** — Yakeen — 3.7L views (+59.7K)
-5. **HACKER Kaise Bane 👽 ?** — Physics Wallah - Alakh Pandey — 58.6K views (+58.6K)
-6. **NEET 2027 Latest Update #neet #neetlatestupdates #neet2027** — Sankalp NEET Vedantu — 47.0K views (+47.0K)
-7. **My teachers 😍🥹 Happy Teachers day 🥰** — Beauty Jha[MBBS] — 39.8K views (+39.8K)
-8. **bhaai ka PTM #non medical #jee #minivlog #bhai #behen** — Beauty Jha[MBBS] — 1.5L views (+35.8K)
+1. **200 Din baad NEET Exam🔥 #pw #physicswallah #shorts** — Competition Wallah — 2.7L views (+2.7L)
+2. **Backlog / Revision Lag / Demotivation??😢 || HONEST Talk for NEET 2027🔥** — Competition Wallah — 4.8L views (+2.3L)
+3. **Important families of NCERT 🌿** — Dr. Parth Goyal — 93.1K views (+81.9K)
+4. **200 Days Left for NEET 2027🚨 | The Ultimate Roadmap** — Yakeen — 73.2K views (+73.2K)
+5. **90 Lakh Se Jyada Cyber Attack 😲⚠️** — Physics Wallah - Alakh Pandey — 62.6K views (+62.6K)
+6. **Be Worthy of Yourself💯 #pw #neet #physicswallah** — Competition Wallah — 77.7K views (+61.1K)
+7. **HACKER Kaise Bane 👽 ?** — Physics Wallah - Alakh Pandey — 1.1L views (+49.2K)
+8. **EXCRETORY PRODUCT & THEIR ELIMINATION Complete Chapter in 1 Video | Class 11th NEET | Hyperbiologist** — Competition Wallah — 43.8K views (+43.8K)
 
-## New uploads (38)
-- Be Worthy of Yourself💯 #pw #neet #physicswallah — Competition Wallah (16.6K views)
-- NEET 2027 Backlog Marathon🔥 | Complete Zoology Part - 2 — Competition Wallah (0 views)
-- Backlog / Revision Lag / Demotivation??😢 || HONEST Talk for NEET 2027🔥 — Competition Wallah (2.5L views)
-- NEET 2027 Backlog Marathon🔥 | Complete Zoology Part - 1 — Competition Wallah (0 views)
-- NEET 2027 Backlog Marathon🔥 | Complete Botany — Competition Wallah (0 views)
-- NEET 2027 Backlog Marathon🔥 | Complete Physical Chemistry — Competition Wallah (0 views)
-- NEET 2027 Backlog Marathon🔥 | Complete Physics - Part 2 — Competition Wallah (0 views)
-- NEET 2027 Backlog Marathon🔥 | Complete Physics - Part 1 — Competition Wallah (0 views)
-- Ek Sapna, Ek Sankalp💯👑 #pw #neet #physicswallah — Competition Wallah (15.1K views)
-- HACKER Kaise Bane 👽 ? — Physics Wallah - Alakh Pandey (58.6K views)
+## New uploads (22)
+- 200 Din baad NEET Exam🔥 #pw #physicswallah #shorts — Competition Wallah (2.7L views)
+- EXCRETORY PRODUCT & THEIR ELIMINATION Complete Chapter in 1 Video | Class 11th NEET | Hyperbiologist — Competition Wallah (43.8K views)
+- 90 Lakh Se Jyada Cyber Attack 😲⚠️ — Physics Wallah - Alakh Pandey (62.6K views)
+- Target Bio 360 start kab hoga aur classes kab kab hongi? #neet #neet2027 #neetstrategy — Sankalp NEET Vedantu (1.5K views)
+- 200 Days Left for NEET 2027 | REAL PLAN vs FAKE MOTIVATION 💯 | Tarun sir — Sankalp NEET Vedantu (13.1K views)
+- Clear Your Physics Concept with ACP Sir #neet #neet2027 — Sankalp NEET Vedantu (1.6K views)
+- TARGET BIO 360 🔥 Batch Features You NEED to Know 🎯 NEET 2027 #neet #neet2027 — Sankalp NEET Vedantu (2.3K views)
+- Forgetting Biology Concepts Frequently? Watch This to Know How to Retain Concepts #neet2027 #neet — Sankalp NEET Vedantu (3.8K views)
+- 200 Days Left for NEET 2027🚨 | The Ultimate Roadmap — Yakeen (73.2K views)
+- Don't Miss This! Follicular Development Explained #neetpreparation #biology #neet2027 — Dr. Anand Mani (257 views)
 
 ## Audience demand
-150 comments · 6 questions · 2 panic signals.
-Themes: drop, dropper, backlog, only, government, fear, leak, please, lost, must
+140 comments · 2 questions · 1 panic signals.
+Themes: backlog, please, panic, only, late, must, drop, mbbs, marks, left, help
