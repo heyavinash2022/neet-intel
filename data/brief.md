@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-10-21
+# NEET Niche Brief — 2026-10-22
 
-**Verdict:** The niche is riding "Physicswallah" — strongest post is "Rajwant Sir Spitting Facts💯 #pw #neet #physicswallah" (2.4L new views).
-- **Topic:** Physicswallah / backlog / marathon
-- **Title formula:** ~65 chars, usually with a year (NEET 2027), emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on backlog, only, please
+**Verdict:** The niche is riding "Backlog" — strongest post is "NEET 2027 Backlog Marathon🔥 | Complete Botany" (5.2L new views).
+- **Topic:** Backlog / marathon / complete
+- **Title formula:** ~67 chars, usually with a year (NEET 2027), emoji (‼️❓📉), an ALL-CAPS word.
+- **Student emotion:** focused on please, backlog, help
 
 ## Biggest movers
-1. **Rajwant Sir Spitting Facts💯 #pw #neet #physicswallah** — Competition Wallah — 2.7L views (+2.4L)
-2. **NEET 2027 Backlog Marathon🔥 | Complete Zoology Part - 1** — Competition Wallah — 2.2L views (+2.2L)
-3. **NEET 2027 Backlog Marathon🔥 | Physical Chemistry | Amit Mahajan Sir ** — Competition Wallah — 4.6L views (+65.2K)
-4. **Relaunching Yakeen 2.0 for NEET 2027🔥 | NEET Droppers** — Competition Wallah — 4.6L views (+53.6K)
-5. **How to become a HACKER 👽 ||  India's Best HACKING Course || PhysicsWallah** — Physics Wallah - Alakh Pandey — 9.3L views (+53.6K)
-6. **You Have No Option💯 #pw #neet #physicswallah** — Yakeen — 51.9K views (+40.6K)
-7. **PW Vidyapeeth: Scholar Batch for NEET 2027 Aspirants** — Competition Wallah — 35.4K views (+35.4K)
-8. **The Secret of Achieving More!!💯 #pw #neet #physicswallah** — Competition Wallah — 32.4K views (+32.4K)
+1. **NEET 2027 Backlog Marathon🔥 | Complete Botany** — Competition Wallah — 5.2L views (+5.2L)
+2. **Rajwant Sir Spitting Facts💯 #pw #neet #physicswallah** — Competition Wallah — 3.5L views (+72.9K)
+3. **NEET 2027 Backlog Marathon🔥 | Complete Zoology Part - 1** — Competition Wallah — 2.8L views (+51.4K)
+4. **Agli Diwali Medical College Wali❤️ #pw #neet #physicswallah** — Competition Wallah — 43.0K views (+43.0K)
+5. **Last 6 Months = Antim Yuddh! ⚔️ | MR Sir Ultimate NEET 2027 Strategy** — PW COMBATANT  — 38.3K views (+38.3K)
+6. **How to become a HACKER 👽 ||  India's Best HACKING Course || PhysicsWallah** — Physics Wallah - Alakh Pandey — 9.7L views (+36.6K)
+7. **Botany Backlog Marathon -  Vipin Sir🔥 #pw #neet #physicswallah** — Competition Wallah — 36.3K views (+36.3K)
+8. **Age limit of NEET 🤡** — Dr. Parth Goyal — 31.7K views (+31.7K)
 
-## New uploads (20)
-- Friction kiska saga hai? ☠️🔥 | #pw #physicswallah #neet2027 #friction — Competition Wallah (8.0K views)
-- Yakeen Backlog Marathon - Zoology Akanksha Mam🔥 #pw #neet #physicswallah — Competition Wallah (19.4K views)
-- The Secret of Achieving More!!💯 #pw #neet #physicswallah — Competition Wallah (32.4K views)
-- BODY FLUIDS & CIRCULATION Part 3 | NEET 2027 ZOOLOGY | NCERT DEEP LINES ULTIMATE | MD Sir — Sankalp NEET Vedantu (0 views)
-- Physics Numerical Problems??? NEET 2027 #neet #neet2027 — Sankalp NEET Vedantu (7.7K views)
-- Manthan Advance Combo Batch kya hai? #neet #neet2027 — Sankalp NEET Vedantu (179 views)
-- Timewaste? kuch Yaad Nahi aa Raha😳 #pw #neet #physicswallah — Yakeen (17.7K views)
-- 🔥 20,000 Questions Challenge for NEET 2027 | Some Basic Concepts of Chemistry  | Chapter 1 — Dr. Anand Mani (4.0K views)
-- What are Nodes of Ranvier? #neet #nodesofranvier #myelinatedneurons #neet2027 — Dr. Anand Mani (316 views)
-- 20,000 Questions Challenge for NEET 2027 | Motion in Straight Line 🔥 — Dr. Anand Mani (0 views)
+## New uploads (28)
+- Agli Diwali Medical College Wali❤️ #pw #neet #physicswallah — Competition Wallah (43.0K views)
+- Botany Backlog Marathon -  Vipin Sir🔥 #pw #neet #physicswallah — Competition Wallah (36.3K views)
+- Respect Your Teachers❤️‍🩹 #pw #neet #physicswallah — Competition Wallah (30.3K views)
+- TARGET BIO 360 | BIOMOLECULES | 1st FREE LECTURE | NEET 2027 BIOLOGY | MD SIR — Sankalp NEET Vedantu (1.8K views)
+- Watching One Shot Lectures Vs Detailed Lectures for NEET 2027 Biology Which is Best?🤔 Watch to Know — Sankalp NEET Vedantu (1.9K views)
+- Backlog Hai? Excuses Band Karo, Aaj Se Start Karo 💯 #neet #neetphysics #acpsir #neet2027 — Sankalp NEET Vedantu (4.1K views)
+- Drop Year, Selection Pressure😥💯 #pw #neet #physicswallah — Yakeen (13.9K views)
+- Can You Solve 100 Toughest NEET Biology PYQs? | NEET 2027 | Dr. Anand Mani — Dr. Anand Mani (2.3K views)
+- Secret difference between Adenine and Uracil 🤫 #neetpreparation #neet2027  #neet — Dr. Anand Mani (285 views)
+- Hydrogen transitions in 5 seconds #neet #chemistry #shorttrick #neet2027 — Dr. Anand Mani (296 views)
 
 ## Audience demand
-126 comments · 1 questions · 4 panic signals.
-Themes: backlog, only, please, drop, dropper, kaise, tension, miss, government, late
+144 comments · 5 questions · 0 panic signals.
+Themes: please, backlog, help, kaise, only, mbbs, drop
