@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-10-29
+# NEET Niche Brief — 2026-10-30
 
-**Verdict:** The niche is riding "Physics" — strongest post is "NEET 2027 Backlog Marathon🔥 | Complete Physics - Part 5" (1.5L new views).
-- **Topic:** Physics / doctor / sunscreen
-- **Title formula:** ~63 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on please, backlog, only
+**Verdict:** The niche is riding "Doctor" — strongest post is "MR Sir Karwa Chauth Moment😭❤️ #pw #gyanutsav #diwalimela" (1.3L new views).
+- **Topic:** Doctor / sunscreen / class
+- **Title formula:** ~64 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
+- **Student emotion:** focused on miss, please, help
 
 ## Biggest movers
-1. **NEET 2027 Backlog Marathon🔥 | Complete Physics - Part 5** — Competition Wallah — 1.5L views (+1.5L)
-2. **Buy Best Sunscreen- Doctor Explains #skincare  #sunscreen** — Dr. Rakshita Singh — 32.1L views (+92.2K)
-3. **PW BATCHES JUST @ ₹11?! 😱 THIS CAN’T BE REAL!** — Physics Wallah - Alakh Pandey — 11.9L views (+84.1K)
-4. **Vipin Sir taking 16 hr Lectures! 😳🔥#pw #sabkayoga #yoga** — Competition Wallah — 63.9K views (+63.9K)
-5. **MR Sir ne Roast Kar Diya Ritik Sir Ko 😂 - Diwali Mela Short** — Physics Wallah - Alakh Pandey — 15.3L views (+51.9K)
-6. **Emotional Story of a Middle Class Parent to make their kid a Doctor #neetpreparation #neet2027** — Dr. Rakshita Singh — 77.1L views (+44.1K)
-7. **Biggest Truth by MR Sir😱💯 #pw #neet #physics** — Yakeen — 78.8K views (+42.0K)
-8. **Success Wala Mindset😱💯 #pw #neet #physicswallah** — Yakeen — 41.8K views (+41.8K)
+1. **MR Sir Karwa Chauth Moment😭❤️ #pw #gyanutsav #diwalimela** — Competition Wallah — 1.3L views (+1.3L)
+2. **Buy Best Sunscreen- Doctor Explains #skincare  #sunscreen** — Dr. Rakshita Singh — 33.0L views (+90.2K)
+3. **MR Sir ne Roast Kar Diya Ritik Sir Ko 😂 - Diwali Mela Short** — Physics Wallah - Alakh Pandey — 16.0L views (+66.5K)
+4. **Emotional Story of a Middle Class Parent to make their kid a Doctor #neetpreparation #neet2027** — Dr. Rakshita Singh — 77.7L views (+59.7K)
+5. **Jab SELECTION Leloge!!💯 #pw #neet #physicswallah** — Competition Wallah — 49.2K views (+49.2K)
+6. **Last Class of Samapti Mam & Sujeet Sir❤️ Lakshya NEET #pw #neet** — Competition Wallah — 35.0K views (+35.0K)
+7. **NEURAL CONTROL & COORDINATION Complete Chapter in 1 Video | Class 11th NEET | Hyperbiologist** — Competition Wallah — 33.6K views (+33.6K)
+8. **Dual Nature of Radiation & Matter | All Concepts + PYQs | NEET 2027 | Prateek Jain** — Physics by Prateek Jain — 33.1K views (+33.1K)
 
 ## New uploads (25)
-- Vipin Sir taking 16 hr Lectures! 😳🔥#pw #sabkayoga #yoga — Competition Wallah (63.9K views)
-- Physics Backlog Marathon - Siddharth Sir🔥 #pw #neet #physicswallah — Competition Wallah (21.3K views)
-- NEET 2027 mei ek GMC kaise FIX krein? #neet #neet2027 — Sankalp NEET Vedantu (4.9K views)
-- Forgetting NCERT Biology Lines Frequently & Scoring Negative Marks in NEET Biology?😱 Watch This NOW — Sankalp NEET Vedantu (9.3K views)
-- Kyu Manthan Batch Itna Special hai #neet #neet2027 — Sankalp NEET Vedantu (1.3K views)
-- CHEMISTRY में Comeback कैसे करें? | 160+ Marks Strategy | NEET 2027 | Sarvesh Sir — Sankalp NEET Vedantu (3.6K views)
-- Know this Major Mistake that 99% Aspirants Do & Avoid it #neet #neet2027 — Sankalp NEET Vedantu (2.0K views)
-- NEET - Diwali Mela offers for PW🚨✨ — Yakeen (21.6K views)
-- Biological Classification in 1 Shot | NCERT Line by Line 🔥 | NEET 2027 — Yakeen (11.1K views)
-- 11 rs me NEET ke batches mil rahe hai 😱 #diwalimela #pw #offer — Yakeen (8.1K views)
+- Last Class of Samapti Mam & Sujeet Sir❤️ Lakshya NEET #pw #neet — Competition Wallah (35.0K views)
+- Jab SELECTION Leloge!!💯 #pw #neet #physicswallah — Competition Wallah (49.2K views)
+- NEURAL CONTROL & COORDINATION Complete Chapter in 1 Video | Class 11th NEET | Hyperbiologist — Competition Wallah (33.6K views)
+- MR Sir Karwa Chauth Moment😭❤️ #pw #gyanutsav #diwalimela — Competition Wallah (1.3L views)
+- TARGET BIO ONLY @1200 🔥 SPECIAL FESTIVAL OFFER #neet #neet2027 — Sankalp NEET Vedantu (794 views)
+- 6 MONTHS Complete PHYSICS Roadmap for NEET 2027 🔥| Must Watch for NEET 2027 PREPARATION | ACP Sir  — Sankalp NEET Vedantu (6.7K views)
+- Are 100 Days Really Enough for NEET 2027 Biology? Watch to Know the Harsh Reality #neet2027 — Sankalp NEET Vedantu (957 views)
+- Last day of Special Offer TODAY #neet #neet2027 — Sankalp NEET Vedantu (5.2K views)
+- Fluid Mosaic Model | Class 11th Biology #neet #neet2027 — Sankalp NEET Vedantu (3.4K views)
+- I Lost My Father😥💔 #pw #neet #physicswallah — Yakeen (7.5K views)
 
 ## Audience demand
-148 comments · 7 questions · 6 panic signals.
-Themes: please, backlog, only, miss, late, help, drop, dropper, fear, left
+150 comments · 5 questions · 5 panic signals.
+Themes: miss, please, help, only, backlog, kaise, fear, late, left
