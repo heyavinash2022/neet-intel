@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-11-02
+# NEET Niche Brief — 2026-11-03
 
-**Verdict:** The niche is riding "Physicswallah" — strongest post is "Competition Bahut High Hai📈💯 #pw #neet #physicswallah" (1.8L new views).
-- **Topic:** Physicswallah / paper / update
-- **Title formula:** ~64 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on only, backlog, drop
+**Verdict:** The niche is riding "Diwali" — strongest post is "Diwali Celebration 2026🎉🔥 | PhysicsWallah #neet #diwali" (2.2L new views).
+- **Topic:** Diwali / physicswallah / celebration
+- **Title formula:** ~61 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
+- **Student emotion:** focused on miss, drop, dropper
 
 ## Biggest movers
-1. **Competition Bahut High Hai📈💯 #pw #neet #physicswallah** — Competition Wallah — 1.8L views (+1.8L)
-2. **NEET 2027 Exam Will Be In Pen Paper Mode | NTA Latest Update | Dr. Anand Mani** — Dr. Anand Mani — 1.4L views (+1.4L)
-3. **Sabse Bada Loss Hoga Tera!!💯 #pw #neet #physicswallah** — Competition Wallah — 83.2K views (+83.2K)
-4. **Yakeen 3.0 2027 - 1st Free Class of Inorganic Chemistry by Mohit Sir🔥 || NEET 2027** — Yakeen — 59.9K views (+59.9K)
-5. **Yakeen 3.0 2027 - 1st Free Class of Inorganic Chemistry by Hitesh Sir🔥 || NEET 2027** — Yakeen — 53.5K views (+53.5K)
-6. **Buy Best Sunscreen- Doctor Explains #skincare  #sunscreen** — Dr. Rakshita Singh — 34.4L views (+52.1K)
-7. **Backlog Ho Gaya? 😰 | Complete Backlog Recovery Plan for NEET Aspirants** — Competition Wallah — 2.4L views (+42.2K)
-8. **Sudhanshu Sir, Nikhil Sir Yakeen 3.0 Journey❤️ #pw #neet #physicswallah** — Competition Wallah — 63.0K views (+34.4K)
+1. **Diwali Celebration 2026🎉🔥 | PhysicsWallah #neet #diwali** — Competition Wallah — 2.2L views (+2.2L)
+2. **Competition Bahut High Hai📈💯 #pw #neet #physicswallah** — Competition Wallah — 3.6L views (+1.8L)
+3. **Half Time Khatam😱 NEET 2027 #pw #neet** — Competition Wallah — 1.1L views (+1.1L)
+4. **PW Wali Happy Diwali❤️🔥 #pw #neet #diwali** — Competition Wallah — 1.0L views (+1.0L)
+5. **Sabse Bada Loss Hoga Tera!!💯 #pw #neet #physicswallah** — Competition Wallah — 1.5L views (+67.2K)
+6. **NEET Faculties in Dance Mood🔥 - #diwalivibes #diwali2026 #neet** — Competition Wallah — 67.2K views (+67.2K)
+7. **You Can do it❤️‍🔥💪🏻 #pw #neet #physicswallah** — Competition Wallah — 48.4K views (+48.4K)
+8. **Samapti Mam in Diwali Celebration🔥 #pw #neet #physicswallah** — Yakeen — 40.5K views (+40.5K)
 
-## New uploads (26)
-- Sabse Bada Loss Hoga Tera!!💯 #pw #neet #physicswallah — Competition Wallah (83.2K views)
-- Competition Bahut High Hai📈💯 #pw #neet #physicswallah — Competition Wallah (1.8L views)
-- Diwali Celebration 2026🎉🔥 | PhysicsWallah #neet #diwali — Competition Wallah (0 views)
-- No One Can Stop Your Selection💯 #pw #neet #physicswallah — Yakeen (5.4K views)
-- First Time Failure💯 #pw #neet #physicswallah — Yakeen (12.2K views)
-- NEET में Tough Paper आए तो क्या करें? 🔥 | NEET 2027 — Yakeen (29.9K views)
-- IOC First Free Class Yakeen 3.0🔥 Hitesh Sir💪 #pw #neet — Yakeen (5.4K views)
-- NEET 2027: Solve Pollination Questions in Seconds #NEET #Biology #StudyHack — Dr. Anand Mani (248 views)
-- Diwali Celebration at @Dr.AnandManiResidentialSchool | NEET 2027 | Dr. Anand Mani — Dr. Anand Mani (3.6K views)
-- Don't lose marks on this NEET Biology question! 🚫 #neet #neetpreparation #biology — Dr. Anand Mani (615 views)
+## New uploads (19)
+- NEET Faculties in Dance Mood🔥 - #diwalivibes #diwali2026 #neet — Competition Wallah (67.2K views)
+- PW Wali Happy Diwali❤️🔥 #pw #neet #diwali — Competition Wallah (1.0L views)
+- Half Time Khatam😱 NEET 2027 #pw #neet — Competition Wallah (1.1L views)
+- You Can do it❤️‍🔥💪🏻 #pw #neet #physicswallah — Competition Wallah (48.4K views)
+- NEET aspirants ke liye diwali special offer — Sankalp NEET Vedantu (0 views)
+- Manthan Now available at LOWEST price Ever #neet #neet2027 — Sankalp NEET Vedantu (996 views)
+- Samapti Mam in Diwali Celebration🔥 #pw #neet #physicswallah — Yakeen (40.5K views)
+- Stop Making Excuses! Give Your Best for NEET 2027 🔥 — Yakeen (35.6K views)
+- 150 Most Important Topics For NEET 2027 Biology | 340+ Marks Guaranteed | Dr. Anand Mani — Dr. Anand Mani (6.4K views)
+- NEET 2027 Syllabus Changed? JEE 2027 Physics Syllabus Reduced | NTA Latest Update — Dr. Anand Mani (24.8K views)
 
 ## Audience demand
-149 comments · 7 questions · 1 panic signals.
-Themes: only, backlog, drop, dropper, government, please, seat, kya karu, late, mbbs, miss, fear, help
+150 comments · 2 questions · 2 panic signals.
+Themes: miss, drop, dropper, backlog, kaise, government, seat, please, mbbs
