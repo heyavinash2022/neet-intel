@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-11-03
+# NEET Niche Brief — 2026-11-04
 
-**Verdict:** The niche is riding "Diwali" — strongest post is "Diwali Celebration 2026🎉🔥 | PhysicsWallah #neet #diwali" (2.2L new views).
+**Verdict:** The niche is riding "Diwali" — strongest post is "NEET Faculties in Dance Mood🔥 - #diwalivibes #diwali2026 #neet" (5.5L new views).
 - **Topic:** Diwali / physicswallah / celebration
-- **Title formula:** ~61 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on miss, drop, dropper
+- **Title formula:** ~60 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
+- **Student emotion:** focused on miss, backlog, late
 
 ## Biggest movers
-1. **Diwali Celebration 2026🎉🔥 | PhysicsWallah #neet #diwali** — Competition Wallah — 2.2L views (+2.2L)
-2. **Competition Bahut High Hai📈💯 #pw #neet #physicswallah** — Competition Wallah — 3.6L views (+1.8L)
-3. **Half Time Khatam😱 NEET 2027 #pw #neet** — Competition Wallah — 1.1L views (+1.1L)
-4. **PW Wali Happy Diwali❤️🔥 #pw #neet #diwali** — Competition Wallah — 1.0L views (+1.0L)
-5. **Sabse Bada Loss Hoga Tera!!💯 #pw #neet #physicswallah** — Competition Wallah — 1.5L views (+67.2K)
-6. **NEET Faculties in Dance Mood🔥 - #diwalivibes #diwali2026 #neet** — Competition Wallah — 67.2K views (+67.2K)
-7. **You Can do it❤️‍🔥💪🏻 #pw #neet #physicswallah** — Competition Wallah — 48.4K views (+48.4K)
-8. **Samapti Mam in Diwali Celebration🔥 #pw #neet #physicswallah** — Yakeen — 40.5K views (+40.5K)
+1. **NEET Faculties in Dance Mood🔥 - #diwalivibes #diwali2026 #neet** — Competition Wallah — 6.2L views (+5.5L)
+2. **Samapti Mam in Diwali Celebration🔥 #pw #neet #physicswallah** — Yakeen — 4.2L views (+3.8L)
+3. **Maharaja Thali Challenge💪 ft. JEE vs NEET🔥 #pw #neet** — Competition Wallah — 3.7L views (+3.7L)
+4. **Diwali Celebration 2026🎉🔥 | PhysicsWallah #neet #diwali** — Competition Wallah — 3.9L views (+1.7L)
+5. **Don't Waste Your Diwali Break🔥 | Smart Study Plan for NEET Aspirants** — Competition Wallah — 1.2L views (+1.2L)
+6. **PW Wali Happy Diwali❤️🔥 #pw #neet #diwali** — Competition Wallah — 2.2L views (+1.2L)
+7. **Competition Bahut High Hai📈💯 #pw #neet #physicswallah** — Competition Wallah — 4.3L views (+62.8K)
+8. **Half Time Khatam😱 NEET 2027 #pw #neet** — Competition Wallah — 1.6L views (+54.9K)
 
-## New uploads (19)
-- NEET Faculties in Dance Mood🔥 - #diwalivibes #diwali2026 #neet — Competition Wallah (67.2K views)
-- PW Wali Happy Diwali❤️🔥 #pw #neet #diwali — Competition Wallah (1.0L views)
-- Half Time Khatam😱 NEET 2027 #pw #neet — Competition Wallah (1.1L views)
-- You Can do it❤️‍🔥💪🏻 #pw #neet #physicswallah — Competition Wallah (48.4K views)
-- NEET aspirants ke liye diwali special offer — Sankalp NEET Vedantu (0 views)
-- Manthan Now available at LOWEST price Ever #neet #neet2027 — Sankalp NEET Vedantu (996 views)
-- Samapti Mam in Diwali Celebration🔥 #pw #neet #physicswallah — Yakeen (40.5K views)
-- Stop Making Excuses! Give Your Best for NEET 2027 🔥 — Yakeen (35.6K views)
-- 150 Most Important Topics For NEET 2027 Biology | 340+ Marks Guaranteed | Dr. Anand Mani — Dr. Anand Mani (6.4K views)
-- NEET 2027 Syllabus Changed? JEE 2027 Physics Syllabus Reduced | NTA Latest Update — Dr. Anand Mani (24.8K views)
+## New uploads (14)
+- MR Sir, Vipin Sir Message for Spammers😡💯 #pw #neet #diwali — Competition Wallah (45.4K views)
+- Don't Waste Your Diwali Break🔥 | Smart Study Plan for NEET Aspirants — Competition Wallah (1.2L views)
+- Maharaja Thali Challenge💪 ft. JEE vs NEET🔥 #pw #neet — Competition Wallah (3.7L views)
+- NEET Aspirants ke liye Sankalp Diwali Offer Teaser🔥 #neet — Sankalp NEET Vedantu (2.1K views)
+- Anatomy of Flowering Plants in 1 Shot | NCERT Line by Line 🔥 | NEET 2027 — Yakeen (8.0K views)
+- NEET 2027 Will Be Easy? Paper Difficulty Level | Dr. Anand Mani — Dr. Anand Mani (17.8K views)
+- 1 Kachori, 2 Samosa…Proton Ka Kya Bharosa! 😂#prateekjain #neet — Physics by Prateek Jain (13.9K views)
+- 7 Days = Thala For a Reason! 🔥 Diwali Holidays Strategy | Vipu Bhaiya — PW COMBATANT  (5.7K views)
+- November Reality Check 🚨! Only 4 Month Left | NEET Droppers Strategy | MR Sir — PW COMBATANT  (7.3K views)
+- LHMC Student’s Secret to Biology & Chemistry🔥 — Dr. Parth Goyal (2.4K views)
 
 ## Audience demand
-150 comments · 2 questions · 2 panic signals.
-Themes: miss, drop, dropper, backlog, kaise, government, seat, please, mbbs
+150 comments · 3 questions · 0 panic signals.
+Themes: miss, backlog, late, drop, dropper, please, only
