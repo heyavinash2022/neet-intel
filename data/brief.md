@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-11-12
+# NEET Niche Brief — 2026-11-13
 
-**Verdict:** The niche is riding "Class" — strongest post is "Yakeen 2.0 2027 - 1st Free Class of Organic Chemistry by Pankaj Sir🔥 " (3.2L new views).
-- **Topic:** Class / organic / chemistry
-- **Title formula:** ~63 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on mbbs, drop, tension
+**Verdict:** The niche is riding "Physicswallah" — strongest post is "@prachand-neet NTA Notification - CBT Confirmed?😳 - #neet2027 #neet #" (76.0K new views).
+- **Topic:** Physicswallah / nta / class
+- **Title formula:** ~60 chars, usually with emoji (‼️❓📉).
+- **Student emotion:** focused on mbbs, tension, drop
 
 ## Biggest movers
-1. **Yakeen 2.0 2027 - 1st Free Class of Organic Chemistry by Pankaj Sir🔥 || NEET 2027** — Yakeen — 3.2L views (+3.2L)
-2. **@prachand-neet NTA Notification - CBT Confirmed?😳 - #neet2027 #neet #nta** — Competition Wallah — 3.3L views (+2.4L)
-3. **Yakeen 2.0 2027 - 1st Free Class of Organic Chemistry by SKC Sir🔥 || NEET 2027** — Yakeen — 1.5L views (+1.5L)
-4. **Amazing Fern | pteridophyte | ferns Can you tell where is Sporangium #neet #neetbiology #tarunsir** — Sankalp NEET Vedantu — 1.8L views (+53.9K)
-5. **Doctor Banne Se pehle Ye 3 Sawal Khud Se Puchho 👨‍⚕️#shorts #shortvideo** — The Apron Boy — 1.0L views (+45.6K)
-6. **Top 1% Banna Seekho! 💯 | Vipin Sir** — Yakeen — 1.0L views (+43.4K)
-7. **Yeh Mera WEAPON Hai💯💪 #pw #neet #physicswallah** — Competition Wallah — 94.3K views (+40.1K)
-8. **12 November Kya Special Hai?😳 #pw #neet #physicswallah** — Yakeen — 39.3K views (+39.3K)
+1. **@prachand-neet NTA Notification - CBT Confirmed?😳 - #neet2027 #neet #nta** — Competition Wallah — 4.0L views (+76.0K)
+2. **Aaj ki neend kal ka white coat #neet #motivation** — Dr. Parth Goyal — 88.3K views (+69.0K)
+3. **Yakeen 2.0 2027 - 1st Free Class of Organic Chemistry by Pankaj Sir🔥 || NEET 2027** — Yakeen — 3.8L views (+62.1K)
+4. **Emotional Story of a Middle Class Parent to make their kid a Doctor #neetpreparation #neet2027** — Dr. Rakshita Singh — 84.1L views (+60.4K)
+5. **Padhai aur Life ki Problems🥺💯 #pw #neet #physicswallah** — Competition Wallah — 45.6K views (+45.6K)
+6. **Power of Manifestation💯🧿 #pw #neet #physicswallah** — Competition Wallah — 77.7K views (+41.9K)
+7. **Every NEET aspirant should listen to Elon musk's this advice 🤯💯** — SUDHANSHU [MBBS]- Mentexx — 44.7K views (+36.3K)
+8. **Kabhi Rukna Mat!!💯 #pw #neet #physicswallah** — Competition Wallah — 35.2K views (+35.2K)
 
-## New uploads (22)
-- Power of Manifestation💯🧿 #pw #neet #physicswallah — Competition Wallah (35.7K views)
-- Duniya Ka Sabse Bada Revenge!!😳💯 #pw #neet #physicswallah — Competition Wallah (39.2K views)
-- 12 chapter = 130+ Marks | NEET 2027 Physics Preparation | ACP Sir — Sankalp NEET Vedantu (8.8K views)
-- Hum Jeetne Aaye Hai!!💯 #pw #neet #physicswallah — Yakeen (3.5K views)
-- Organic Chemistry में ये गलतियां मत करना! 🚨 | NEET 2027 — Yakeen (25.7K views)
-- Aapka Bhi SELECTION Ho Jyegaa!!💯 #pw #neet #physicswallah — Yakeen (21.3K views)
-- 12 November Kya Special Hai?😳 #pw #neet #physicswallah — Yakeen (39.3K views)
-- Yakeen 2.0 - Organic Chemistry First Class🔥 #pw #neet — Yakeen (22.5K views)
-- Are you solving this Plant Growth question correctly? 🧐 #neet2027 #science #education — Dr. Anand Mani (214 views)
-- Don't Get Confused By This Hemoglobin Question! #neet #biologynotes #mbbs — Dr. Anand Mani (507 views)
+## New uploads (14)
+- Kabhi Rukna Mat!!💯 #pw #neet #physicswallah — Competition Wallah (35.2K views)
+- Padhai aur Life ki Problems🥺💯 #pw #neet #physicswallah — Competition Wallah (45.6K views)
+- Top 1% is Very Important💯 #pw #neet #physicswallah — Competition Wallah (25.5K views)
+- NEET 2027 Revision Strategy | Stop Studying Without Direction | NEET 2027 Preparation | Tarun Sir — Sankalp NEET Vedantu (5.6K views)
+- Main Target in NEET Exam🎯💯 #pw #neet #physicswallah — Yakeen (8.7K views)
+- You Can't Runaway!!💯 #pw #new #physicswallah — Yakeen (10.2K views)
+- Safe Score For NEET 2027 Mock Test | Expected Cutoff For NEET 2027 | Dr. Anand Mani — Dr. Anand Mani (6.4K views)
+- LIVE Classes ≠ Selection! 💀 Self-Study Reality Check | NEET Selection Bhool Jao! 🚨 | MD Sir — PW COMBATANT  (5.0K views)
+- 20 Lakh Students Se Aage Kaise Nikloge? 🔥MR SIR | NEET 2027 — PW COMBATANT  (25.2K views)
+- Dreaming of Dr.? Be Ready for the Struggle! 🔥 — Dr. Parth Goyal (4.1K views)
 
 ## Audience demand
-150 comments · 1 questions · 5 panic signals.
-Themes: mbbs, drop, tension, please, backlog, late, kaise, miss, dropper
+128 comments · 2 questions · 7 panic signals.
+Themes: mbbs, tension, drop, dropper, help, miss, please, late, backlog, confused, waste, lost, only
