@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-11-18
+# NEET Niche Brief — 2026-11-19
 
-**Verdict:** The niche is riding "Physicswallah" — strongest post is "AMAZING FERN 🌿 Can You Identify the SPORANGIUM? NEET Biology #neet #n" (1.2L new views).
-- **Topic:** Physicswallah / biology / 360
-- **Title formula:** ~70 chars, usually with emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on only, please, tension
+**Verdict:** The niche is riding "Physicswallah" — strongest post is "Samapti Mam PS5 & GTA 6 GIVEAWAY!🔥🤩 #pw #neet #physicswallah" (1.5L new views).
+- **Topic:** Physicswallah / samapti / gta
+- **Title formula:** ~67 chars, usually with a year (NEET 2027), emoji (‼️❓📉), an ALL-CAPS word.
+- **Student emotion:** focused on backlog, drop, rank
 
 ## Biggest movers
-1. **AMAZING FERN 🌿 Can You Identify the SPORANGIUM? NEET Biology #neet #neetbiology #tarunsir** — Sankalp NEET Vedantu — 7.0L views (+1.2L)
-2. **FREE SERIES ANNOUNCEMENT - Vijay 360 for NEET 2027🔥 @PWNEET-Official** — Competition Wallah — 1.2L views (+1.2L)
-3. **Saleem Sir on Dhoni Retirement🥺 #pw #neet #physicswallah** — Competition Wallah — 88.4K views (+88.4K)
-4. **Thermodynamics in One Video | All Concept, Tricks & PYQs | NEET 2027** — Competition Wallah — 61.5K views (+61.5K)
-5. **@prachand-neet NTA Notification - CBT Confirmed?😳 - #neet2027 #neet #nta** — Competition Wallah — 6.2L views (+57.1K)
-6. **GTA 6 STREAM setup in MBBS HOSTEL #stream #gta6 #ps5 #gaming #shorts #viral** — Pratyaksh Agarwal — 38.1K views (+38.1K)
-7. **SKC Sir on MS Dhoni🥺❤️ #pw #neet #physicswallah** — Yakeen — 37.1K views (+37.1K)
-8. **Emotional Story of a Middle Class Parent to make their kid a Doctor #neetpreparation #neet2027** — Dr. Rakshita Singh — 85.9L views (+36.4K)
+1. **Samapti Mam PS5 & GTA 6 GIVEAWAY!🔥🤩 #pw #neet #physicswallah** — Competition Wallah — 1.5L views (+1.5L)
+2. **AMAZING FERN 🌿 Can You Identify the SPORANGIUM? NEET Biology #neet #neetbiology #tarunsir** — Sankalp NEET Vedantu — 7.9L views (+90.2K)
+3. **Saleem Sir on Dhoni Retirement🥺 #pw #neet #physicswallah** — Competition Wallah — 1.7L views (+80.0K)
+4. **FREE SERIES ANNOUNCEMENT - Vijay 360 for NEET 2027🔥 @PWNEET-Official** — Competition Wallah — 2.0L views (+79.0K)
+5. **Thermodynamics in One Video | All Concept, Tricks & PYQs | NEET 2027** — Competition Wallah — 1.2L views (+62.5K)
+6. **Maine Bhi Drop Liya Tha!💯 | Samapti Ma'am's Reality Check | NEET 2027** — Yakeen — 59.4K views (+59.4K)
+7. **SKC Sir on MS Dhoni🥺❤️ #pw #neet #physicswallah** — Yakeen — 89.0K views (+51.8K)
+8. **NEET 2027 free Series🔥 @PWNEET-Official #pw #neet** — Competition Wallah — 44.2K views (+44.2K)
 
-## New uploads (28)
-- Excuses Chhodo, Padhai Karo!!💯 #pw #neet #physicswallah — Competition Wallah (18.7K views)
-- Thermodynamics in One Video | All Concept, Tricks & PYQs | NEET 2027 — Competition Wallah (61.5K views)
-- Saleem Sir on Dhoni Retirement🥺 #pw #neet #physicswallah — Competition Wallah (88.4K views)
-- NEET Students क्या करे 🤔 December Start #neet #neet2027 #tarunsir — Sankalp NEET Vedantu (6.8K views)
-- Samapti Mam on Call with Yakeenians💯 #pw #neet #physicswallah — Yakeen (6.6K views)
-- SKC Sir on MS Dhoni🥺❤️ #pw #neet #physicswallah — Yakeen (37.1K views)
-- Class 12th Weightage Added In NEET 2027? NTA Latest Update | NEET 2027 | Dr. Anand Mani — Dr. Anand Mani (16.1K views)
-- Best Test Series For NEET 2027 | NEET 2027 Latest News | Dr. Anand Mani — Dr. Anand Mani (5.9K views)
-- Chemical Bonding and Molecular Structure | NCERT Line by Line Questions | NEET 2027 Chemistry — Dr. Anand Mani (2 views)
-- Thermodynamics | NCERT Line by Line Questions | NEET 2027 Chemistry — Dr. Anand Mani (2 views)
+## New uploads (31)
+- Samapti Mam PS5 & GTA 6 GIVEAWAY!🔥🤩 #pw #neet #physicswallah — Competition Wallah (1.5L views)
+- NEET 2027 free Series🔥 @PWNEET-Official #pw #neet — Competition Wallah (44.2K views)
+- Revision For NEET 2027 | BEST SOLUTION only for Serious Students | Tarun sir  — Sankalp NEET Vedantu (7.1K views)
+- PW Vidyapeeth: Fastrack Batch for NEET 2027 Aspirants🔥 — Yakeen (0 views)
+- Maine Bhi Drop Liya Tha!💯 | Samapti Ma'am's Reality Check | NEET 2027 — Yakeen (59.4K views)
+- Two Type of STUDENTS😳💯 #pw #neet #physicswallah — Yakeen (15.8K views)
+- Yakeen NEET Pass 2027 for NEET Droppers🔥 | NEET 2027 — Yakeen (0 views)
+- Drugs and Alcohol Abuse | Topic 6 | NEET 2027 Biology | Dr. Anand Mani — Dr. Anand Mani (1.2K views)
+- Don't lose marks on this Photosynthesis question 📉 #NEETTips #Biology #DrAnandMani — Dr. Anand Mani (242 views)
+- Only For Students Who Scored 520+ Marks In NEET 2026 | Important Update | Dr. Anand Mani — Dr. Anand Mani (5.2K views)
 
 ## Audience demand
-148 comments · 4 questions · 2 panic signals.
-Themes: only, please, tension, help, drop, dropper, left, late, mbbs
+150 comments · 2 questions · 0 panic signals.
+Themes: backlog, drop, rank, dropper, only, increase, miss, please, help
