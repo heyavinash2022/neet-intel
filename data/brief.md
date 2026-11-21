@@ -1,32 +1,32 @@
-# NEET Niche Brief — 2026-11-20
+# NEET Niche Brief — 2026-11-21
 
-**Verdict:** The niche is riding "Physicswallah" — strongest post is "AMAZING FERN 🌿 Can You Identify the SPORANGIUM? NEET Biology #neet #n" (1.2L new views).
+**Verdict:** The niche is riding "Physicswallah" — strongest post is "Samapti Mam PS5 & GTA 6 GIVEAWAY!🔥🤩 #pw #neet #physicswallah" (4.7L new views).
 - **Topic:** Physicswallah / samapti / mam
-- **Title formula:** ~69 chars, usually with a year (NEET 2027), emoji (‼️❓📉), an ALL-CAPS word.
-- **Student emotion:** focused on drop, dropper, rank
+- **Title formula:** ~68 chars, usually with a year (NEET 2027), emoji (‼️❓📉), an ALL-CAPS word.
+- **Student emotion:** focused on drop, dropper, increase
 
 ## Biggest movers
-1. **AMAZING FERN 🌿 Can You Identify the SPORANGIUM? NEET Biology #neet #neetbiology #tarunsir** — Sankalp NEET Vedantu — 9.0L views (+1.2L)
-2. **VMMC Student in Samapti Mam Class🔥 #pw #neet #physicswallah** — Competition Wallah — 91.8K views (+91.8K)
-3. **Samapti Mam PS5 & GTA 6 GIVEAWAY!🔥🤩 #pw #neet #physicswallah** — Competition Wallah — 2.4L views (+91.6K)
-4. **PW Vidyapeeth: Fastrack Batch for NEET 2027 Aspirants🔥** — Yakeen — 45.6K views (+45.6K)
-5. **NEET Selection Kaise Hota Hai😳💯 #pw #neet #physicswallah** — Competition Wallah — 40.0K views (+40.0K)
-6. **150 Din ka Sacrifice💯 NEET 2027 #pw #neet #physicswallah** — Competition Wallah — 37.9K views (+37.9K)
-7. **DIET COKE sent me this Surprise box ! 💌 #dietcoke #unbox #surprisegift #shorts** — Pratyaksh Agarwal — 34.9K views (+34.9K)
-8. **Emotional Story of a Middle Class Parent to make their kid a Doctor #neetpreparation #neet2027** — Dr. Rakshita Singh — 86.5L views (+33.0K)
+1. **Samapti Mam PS5 & GTA 6 GIVEAWAY!🔥🤩 #pw #neet #physicswallah** — Competition Wallah — 7.1L views (+4.7L)
+2. **VMMC Student in Samapti Mam Class🔥 #pw #neet #physicswallah** — Competition Wallah — 2.3L views (+1.4L)
+3. **Video Call with AIIMS Topper😱🔥 #pw #neet #physicswallah** — Competition Wallah — 73.7K views (+73.7K)
+4. **150 Din ka Sacrifice💯 NEET 2027 #pw #neet #physicswallah** — Competition Wallah — 95.5K views (+57.7K)
+5. **150 दिन का Sacrifice बदल देगा जिंदगी! 🔥 | Avoid Cheap Dopamine | NEET 2027** — Yakeen — 46.4K views (+46.4K)
+6. **AMAZING FERN 🌿 Can You Identify the SPORANGIUM? NEET Biology #neet #neetbiology #tarunsir** — Sankalp NEET Vedantu — 9.5L views (+43.8K)
+7. **PW Vidyapeeth: Fastrack Batch for NEET 2027 Aspirants🔥** — Yakeen — 84.8K views (+39.2K)
+8. **460 Marks in November to VMMC Delhi! 😱🔥 | NEET Topper's Comeback Strategy Revealed | Samapti Mam** — PW COMBATANT  — 58.9K views (+38.3K)
 
-## New uploads (22)
-- 150 Din ka Sacrifice💯 NEET 2027 #pw #neet #physicswallah — Competition Wallah (37.9K views)
-- VMMC Student in Samapti Mam Class🔥 #pw #neet #physicswallah — Competition Wallah (91.8K views)
-- NEET Selection Kaise Hota Hai😳💯 #pw #neet #physicswallah — Competition Wallah (40.0K views)
-- Now Exam On CBT??? NTA Latest Update #neet #neet2027 #neetcbt — Sankalp NEET Vedantu (13.8K views)
-- NEURAL CONTROL & COORDINATION in 1 Shot | NCERT Line by Line 🔥 | NEET 2027 — Yakeen (6.7K views)
-- Pankaj Sir in Abhishek Sir Class🔥 #pw #neet #physicswallah — Yakeen (10.6K views)
-- You Need to Be Better💯 #pw #neet #physicswallah — Yakeen (6.9K views)
-- Why students fail this Chromosome question 🤯 #NEET2027 #BiologyConcepts #ExamPrep — Dr. Anand Mani (225 views)
-- Human Evolution In On Shot | NEET 2027 Biology | Dr. Anand Mani — Dr. Anand Mani (1.1K views)
-- Open Challenge To ALL NEET 2027 Aspirants | NEET 2027 Biology | Dr. Anand Mani — Dr. Anand Mani (4.3K views)
+## New uploads (25)
+- AIIMS Delhi Topper in Vipin Sir Class🔥 #pw #neet #physicswallah — Competition Wallah (34.5K views)
+- Agar Doctor Banna Hai!!💯 #pw #neet #physicswallah — Competition Wallah (33.7K views)
+- Video Call with AIIMS Topper😱🔥 #pw #neet #physicswallah — Competition Wallah (73.7K views)
+- BIGGEST HELP for NEET 2027 Aspirants | Target Bio 360 2.0 Batch Launch🔥 #neet2027 #neetbiology — Sankalp NEET Vedantu (7.9K views)
+- BIGGEST HELP for NEET 2027 Aspirants 🔴 LIVE at 7 PM #neet #neet2027 ##tarunsir #neetbiology — Sankalp NEET Vedantu (4.1K views)
+- November to NEET 2027🔥 #pw #neet #physicswallah — Yakeen (22.9K views)
+- Marks Kaise Improve Hote Hai?😳💯 #pw #neet #physicswallah — Yakeen (14.1K views)
+- 150 दिन का Sacrifice बदल देगा जिंदगी! 🔥 | Avoid Cheap Dopamine | NEET 2027 — Yakeen (46.4K views)
+- NEET 2027: Master Human Body Composition in 60 Seconds #NEETPreparation #Biology — Dr. Anand Mani (290 views)
+- NCERT Chemistry Padhi Hai Toh 10/10 Karke Dikhao! 🔥 | NEET 2027 Chemistry   #neet2027 #neetchemistry — Dr. Anand Mani (1.5K views)
 
 ## Audience demand
-132 comments · 0 questions · 1 panic signals.
-Themes: drop, dropper, rank, miss, late, increase, mbbs, seat, tension, help, please, only
+131 comments · 1 questions · 3 panic signals.
+Themes: drop, dropper, increase, rank, seat, only, mbbs, miss, late, tension, scared, backlog
